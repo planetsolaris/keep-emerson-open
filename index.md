@@ -2,7 +2,7 @@
 
 Hello, we are members of the Emerson Elementary community.
 
-Emerson is a public elementary school in Salt Lake City, Utah that is currently on a list for potential closure despite the fact that it is a top performing school in the state and has been [nationally recognized](https://nationalblueribbonschools.ed.gov/awardwinners/winning/21ut102pu_emerson_elementary_school.html) due to its academic and special education programs.
+Emerson is a public elementary school in Salt Lake City, Utah that is currently on a list for potential closure despite the fact that it is a top performing school in the state and has been [nationally recognized](https://nationalblueribbonschools.ed.gov/awardwinners/winning/21ut102pu_emerson_elementary_school.html).
 
 Our mission is to create a hub for gathering and sharing information about Emerson with a passionate determination to ensure its continued operation.
 
@@ -30,14 +30,16 @@ This site aims to provide insights into each of these factors, underscoring thei
 
 - Emerson is not in a major thoroughfare like 700 East so students are not playing by busy roads or having to cross 6-car lane traffic to get to/from school.
 - Emerson still serves a lot of students in the neighborhood and a lot of parents in the community bike or walk their kids to/from school (some, out of necessity).
-- Redistricting of the children in Emerson’s boundaries will mean further walking distances, either across busy 700 East or up difficult (snowy hills during winter) on 1300 South.
+- Redistricting of the children in Emerson’s boundaries will mean further walking distances, either across busy 700 East or up difficult hill (snowy during winter) on 1300 South.
 - Emerson is the only school in the district with two aftercare programs within .5 miles of walking distance from the school (St John's CCDC Sugarhouse and Arte Primero Studios).
 - Classes are able to have safe walking field trips around the community (Free Little Libraries, parks, post office, etc.).
 - The city is also [improving 1100 East](https://www.slc.gov/mystreet/2022/12/12/1100east/) near Emerson to “provide safety improvements, traffic calming features, and bicycle lanes along the corridor.”
+- The school is accessible via UTA bus routes 209 and 220.
 
 ## Enrollment Trends
 
 Emerson continues to serve a significant number of students from its local neighborhood. As per the [district's definition](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study/population-and-boundary-study-faq#fs-panel-80237) of “right-sized elementary school,” Emerson maintains a ratio of about three teachers per grade and offers full-day kindergarten classes. In Utah, parents have the choice of [open enrollment](https://le.utah.gov/xcode/Title53G/Chapter6/53G-6-S402.html) and many choose Emerson for its commitment to excellence.
+
 Despite declining enrollment rates cited as a reason for potential closures, Emerson operates at 85% student capacity, marking the second-highest enrollment rate within the Salt Lake City School District. The table sourced from the [State Board of Education](https://www.schools.utah.gov/data/reports?mid=1424&tid=4) emphasizes in bold the enrollment rates for Emerson as well as the other schools on the list for potential closure.
 
 | School Name             | % of Capacity |
@@ -74,11 +76,11 @@ Despite declining enrollment rates cited as a reason for potential closures, Eme
 
 In Central City, a staggering four out of the seven schools find themselves on the list "recommended for further study for potential closure." Among them, Emerson and Hawthorne, situated in close proximity, face an uncertain future. Additionally, Bennion and Wasatch are also part of this list. Notably, these four schools represent a substantial portion of the city, from lower Avenues to Sugarhouse.
 
-The potential loss of these four schools would significantly impact the fabric of this area, which can also be challenging to fill in the future. Emerson is a vital cornerstone of our community.
+The potential loss of these four schools would significantly impact the fabric of this area, which can also be challenging to fill in the future. Emerson is a vital cornerstone of our community: it is a phenomenal public elementary school in the neighborhood that just works. The school ground also becomes a community gathering point in the evenings when dog owners bring their dogs to the field, parents with babies and toddlers play in the playground, and students with their caregivers also stop by.
 
 ## Cost to Operate (building, utilities, etc.)
 
-Sourced from the [Salt Lake School District Sustainability Action Plan](https://resources.finalsite.net/images/v1641931356/slcschoolsorg/irjphywgl0dtrb8n8in0/sustainability-resolution-english.pdf), Emerson has 6th lowest utility cost per student, 5th lowest emissions per student, 12th lowest Energy Use Intensity ('miles per gallon' of the school), and 9th lowest water usage compared to all elementary schools in the district.
+Sourced from the [Salt Lake City School District Sustainability Action Plan](https://resources.finalsite.net/images/v1641931356/slcschoolsorg/irjphywgl0dtrb8n8in0/sustainability-resolution-english.pdf), Emerson has 6th lowest utility cost per student, 5th lowest emissions per student, 12th lowest Energy Use Intensity ('miles per gallon' of the school), and 9th lowest water usage compared to all elementary schools in the district.
 
 Emerson has recently invested in upgrades that made the school energy-efficient, with energy-saving lights and an installation of solar panels. These enhancements are projected to further lower the school's energy costs, ensuring a greener and more eco-conscious future.
 
@@ -96,7 +98,7 @@ Emerson parents volunteer at the school every day. Their active involvement not 
 
 ## Other things to note:
 
-- Emerson has a diverse student body as the neighborhood children come from different socioeconomic backgrounds (mixed-income families, renters/property owners, parents with varying jobs they can impart with the student body, etc.). The students are also exposed to different abilities/neurodiversity as teachers, administrators, and staff encourage collaboration of its students.
+- Emerson has a diverse student body as the neighborhood children come from different socioeconomic backgrounds (mixed-income families, renters/property owners, parents with varying jobs they can impart with the student body, etc.). The students are also exposed to different abilities/neurodiversity as teachers, administrators, and staff encourage collaboration of the students.
 - The Emerson community values clean air, inclusion, and progress. The city is already trying to better bridge Central City (west and east) with projects like [900 South Reconstruction](https://www.slc.gov/mystreet/2023/02/16/900-south-900-east-to-900-west/) and [Kensington Byway](https://www.slc.gov/transportation/neighborhood-byways/kensington/); Emerson is between these projects.
 
 ## Community Input
@@ -106,11 +108,11 @@ Emerson parents volunteer at the school every day. Their active involvement not 
 - [You can help keep Emerson open by emailing the Board.](https://www.slcschools.org/board-of-education)
 - [You can help keep Emerson open by emailing the Superintendent's Office.](https://www.slcschools.org/departments/superintendents-office)
 - [Council Meeting Notes](https://resources.finalsite.net/images/v1689197476/slcschoolsorg/lgzj2vrlba27zbobmgam/EmersonCommunityCouncilMeeting04-12-23.pdf)
-- [KUTV: Surprise, School with High Enrollment on Closure List](https://kutv.com/news/crisis-in-the-classroom/parents-shocked-by-salt-lake-schools-listed-for-possible-closure-despite-high-enrollment-emerson-elementary-large-student-body-programs-public-comment)
+- [August 1, 2023 Board Meeting Comments (6:56 to 37:23)](https://www.youtube.com/live/3WFBqnKmgy0?feature=share&t=416)
 - [Salt Lake Tribune: Current SLCSD School Closures List Presents Glaring Issues like Equity and Transparency](https://www.sltrib.com/opinion/commentary/2023/07/28/marina-gomberg-wonders-if-proposed/)
 - [Salt Lake Tribune: Keep Emerson Elementary Open](https://www.sltrib.com/opinion/commentary/2023/07/21/alyssa-campos-keep-emerson/)
 - [Salt Lake Tribune: Invest in Public Education](https://www.sltrib.com/opinion/letters/2023/07/20/letter-potential-closure-salt-lake/)
-- [Salt Lake Tribune: Utah Public School Students Deserve More](https://www.sltrib.com/opinion/editorial/2023/07/09/tribune-editorial-utah-public/)
+- [KUTV: Surprise, School with High Enrollment on Closure List](https://kutv.com/news/crisis-in-the-classroom/parents-shocked-by-salt-lake-schools-listed-for-possible-closure-despite-high-enrollment-emerson-elementary-large-student-body-programs-public-comment)
 
 ## Emerson Elementary History
 
