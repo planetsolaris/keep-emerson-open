@@ -109,7 +109,7 @@ Emerson parents volunteer at the school every day. Their active involvement not 
 - [You can help keep Emerson open by leaving the Board feedback online.](https://saltlakedistrict.sjc1.qualtrics.com/jfe/form/SV_bm7M6vIXQLQQAHc)
 - [You can help keep Emerson open by emailing the Board.](https://www.slcschools.org/board-of-education)
 - [You can help keep Emerson open by emailing the Superintendent's Office.](https://www.slcschools.org/departments/superintendents-office)
-- [August 2, 2023 Mohamed Baayd at Sugar House Community Council (1:30 to 22:40)](https://www.youtube.com/live/H2ipW_5DW2g?feature=share&t=90)
+- [August 2, 2023 Precinct 5 Representative Mohamed Baayd at Sugar House Community Council (1:30 to 22:40)](https://www.youtube.com/live/H2ipW_5DW2g?feature=share&t=90)
 - [August 1, 2023 Board Meeting Comments (6:56 to 37:23)](https://www.youtube.com/live/3WFBqnKmgy0?feature=share&t=416)
 
 [**"We have the walkability, the sustainability, the community. We have the diversity, the special programs, but it seems like they aren’t considering that with this committee.” - Matt Pace, Emerson parent**](https://www.fox13now.com/news/local-news/salt-lake-city-school-district-moves-forward-with-study-on-possible-closures)
