@@ -113,11 +113,12 @@ Emerson parents volunteer at the school every day. Their active involvement not 
 - [August 2, 2023 Mohamed Baayd at Sugar House Community Council (1:30 to 22:40)](https://www.youtube.com/live/H2ipW_5DW2g?feature=share&t=90)
 - [August 1, 2023 Board Meeting Comments (6:56 to 37:23)](https://www.youtube.com/live/3WFBqnKmgy0?feature=share&t=416)
 
-**["We have the walkability, the sustainability, the community. We have the diversity, the special programs, but it seems like they aren’t considering that with this committee.” - Matt Pace, Emerson parent]**(https://www.fox13now.com/news/local-news/salt-lake-city-school-district-moves-forward-with-study-on-possible-closures)
+[**"We have the walkability, the sustainability, the community. We have the diversity, the special programs, but it seems like they aren’t considering that with this committee.” - Matt Pace, Emerson parent**](https://www.fox13now.com/news/local-news/salt-lake-city-school-district-moves-forward-with-study-on-possible-closures)
 
-**["Our community deserves to have a school that works well with everyone." -Cora McNamee, Emerson student]**(https://www.abc4.com/video/salt-lake-city-school-district-heard-arguments-for-keeping-schools-open/8870754/)
+[**"Our community deserves to have a school that works well with everyone." -Cora McNamee, Emerson student**](https://www.abc4.com/video/salt-lake-city-school-district-heard-arguments-for-keeping-schools-open/8870754/)
 
 - [SLTrib: All 7 Proposed SLC Schools Will Be Studied for Closure](https://www.sltrib.com/news/education/2023/08/01/tonight-salt-lake-citys-school/)
+- [KUTV: Parents Rally for Their Kids' Schools]https://kutv.com/news/crisis-in-the-classroom/parents-rally-to-convince-district-to-keep-salt-lake-city-schools-open-elementary
 - [SLTrib: What put these 7 SLC Schools on Radar for Closure?](https://www.sltrib.com/news/education/2023/08/01/why-are-these-7-salt-lake-city/)
 - [SLTrib: Current SLCSD School Closures List Presents Glaring Issues like Equity and Transparency](https://www.sltrib.com/opinion/commentary/2023/07/28/marina-gomberg-wonders-if-proposed/)
 - [SLTrib: Keep Emerson Elementary Open](https://www.sltrib.com/opinion/commentary/2023/07/21/alyssa-campos-keep-emerson/)
