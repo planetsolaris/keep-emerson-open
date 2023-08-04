@@ -44,33 +44,33 @@ Despite declining enrollment rates cited as a reason for potential closures, Eme
 
 | School Name             | % of Capacity |
 |-------------------------|--------------:|
-| Backman School          |           54% |
-| Beacon Heights School   |           63% |
-| Bonneville School       |           75% |
-| Dilworth School         |           76% |
-| Edison School           |           59% |
-| **Emerson School**      |           85% |
-| Ensign School           |           52% |
-| Escalante School        |           53% |
-| Franklin School         |           45% |
-| **Hawthorne School**    |           66% |
-| Highland Park School    |           82% |
-| Indian Hills School     |           50% |
-| Liberty School          |           55% |
-| **M. Lynn Bennion School** |         26% |
-| **Mary W. Jackson School** |        63% |
-| Meadowlark School       |           57% |
 | Mountain View School    |           86% |
-| **Newman School**       |           42% |
-| Nibley Park School      |           46% |
-| North Star School       |           53% |
-| Parkview School         |           34% |
-| **Riley School**        |           35% |
-| Rose Park School        |           45% |
+| **Emerson School**      |           85% |
+| Highland Park School    |           82% |
+| Dilworth School         |           76% |
+| Bonneville School       |           75% |
 | Uintah School           |           75% |
-| **Wasatch School**      |           56% |
-| Washington School       |           36% |
 | Whittier School         |           69% |
+| **Hawthorne School**    |           66% |
+| Beacon Heights School   |           63% |
+| **Mary W. Jackson School** |        63% |
+| Edison School           |           59% |
+| Meadowlark School       |           57% |
+| **Wasatch School**      |           56% |
+| Liberty School          |           55% |
+| Backman School          |           54% |
+| Escalante School        |           53% |
+| North Star School       |           53% |
+| Ensign School           |           52% |
+| Indian Hills School     |           50% |
+| Nibley Park School      |           46% |
+| Franklin School         |           45% |
+| Rose Park School        |           45% |
+| **Newman School**       |           42% |
+| Washington School       |           36% |
+| **Riley School**        |           35% |
+| Parkview School         |           34% |
+| **M. Lynn Bennion School** |         26% |
 
 ## Proximity to Other Schools
 
