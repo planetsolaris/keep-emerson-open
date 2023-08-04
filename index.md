@@ -90,14 +90,15 @@ Emerson parents volunteer at the school every day. Their active involvement not 
 
 ## Ask the School Board:
 
-1. On August 1st, did the District change their definition of "right-sizing" schools mid-process to explicitly mean "an average of at least three neighborhood classrooms per grade level (separate from our classrooms for district programs, such as Magnet ELP or Dual Language Immersion)?" What data is this "right-sizing" "educational model" based from? Where does behavioral and special education classes fit in this model? What is the classroom size in a right size school? How are they going to apply this model in all precincts? What is the timeline to apply this model in all precincts?
-2. Will the district keep the land if Emerson closes?
-3. How much will it cost to close Emerson? What will happen to the "money saved" from closing Emerson?
-4. It does not take overnight to rebuild programs in other schools. Emerson is home to a number of established academic and special education programs. What is the timeline to rebuild those programs in which other schools?
-5. What school would the Emerson neighborhood students go to if Emerson closes? How is the district going to ensure that support for students who are enrolled in Emerson because of its special education programs will be readily available in another school?
+1. Decision comments or scoring information is not available on the [Boundary Options Committee's data](https://resources.finalsite.net/images/v1689889156/slcschoolsorg/msnrax3oquvts0jx4b0i/Ranking.pdf). Is this publicly available spreadsheet the same spreadsheet that the Board is reviewing to make their decisions? What do their scoring mean? Where is the rubrik for their data? 
+2. On August 1st, did the district change their definition of "right-sizing" schools mid-process to explicitly mean "an average of at least three neighborhood classrooms per grade level (separate from our classrooms for district programs, such as Magnet ELP or Dual Language Immersion)?" What data is this "right-sizing" "educational model" based from? Where does behavioral and special education classes fit in this model? What is the classroom size in a right size school? How are they going to apply this model in all precincts? What is the timeline to apply this model in all precincts?
+4. How much will it cost to close Emerson? What will happen to the "money saved" from closing Emerson? Will the district keep the land if Emerson closes?
+5. It does not take overnight to rebuild programs in other schools. Emerson is home to a number of established academic and special education programs. What is the timeline to rebuild those programs in which other schools?
+6. What school would the Emerson neighborhood students go to if Emerson closes? How is the district going to ensure that support for students who are enrolled in Emerson because of its special education programs will be readily available in another school?
 
 ## Other things to note:
 
+- Parents can't emphasize enough that Emerson is a school that just works: children are happy and thriving, teachers are dedicated and passionate, and the school leadership is highly commendable. It is a school with a synergy that can't be replicated anywhere else.
 - Emerson has a diverse student body as the neighborhood children come from different socioeconomic backgrounds (mixed-income families, renters/property owners, parents with varying jobs they can impart with the student body, etc.). The students are also exposed to different abilities/neurodiversity as teachers, administrators, and staff encourage collaboration of the students.
 - The Emerson community values clean air, inclusion, and progress. The city is already trying to better bridge Central City (west and east) with projects like [900 South Reconstruction](https://www.slc.gov/mystreet/2023/02/16/900-south-900-east-to-900-west/) and [Kensington Byway](https://www.slc.gov/transportation/neighborhood-byways/kensington/); Emerson is between these projects.
 
