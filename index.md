@@ -90,11 +90,12 @@ Emerson parents volunteer at the school every day. Their active involvement not 
 
 ## Ask the School Board:
 
-1. Decision comments or scoring information is not available on the [Boundary Options Committee's data](https://resources.finalsite.net/images/v1689889156/slcschoolsorg/msnrax3oquvts0jx4b0i/Ranking.pdf). Is this publicly available spreadsheet the same spreadsheet that the Board is reviewing to make their decisions? What do their scoring mean? Where is the rubrik for their data? 
-2. On August 1st, did the district change their definition of "right-sizing" schools mid-process to explicitly mean "an average of at least three neighborhood classrooms per grade level (separate from our classrooms for district programs, such as Magnet ELP or Dual Language Immersion)?" What data is this "right-sizing" "educational model" based from? Where does behavioral and special education classes fit in this model? What is the classroom size in a right size school? How are they going to apply this model in all precincts? What is the timeline to apply this model in all precincts?
-4. How much will it cost to close Emerson? What will happen to the "money saved" from closing Emerson? Will the district keep the land if Emerson closes?
-5. It does not take overnight to rebuild programs in other schools. Emerson is home to a number of established academic and special education programs. What is the timeline to rebuild those programs in which other schools?
-6. What school would the Emerson neighborhood students go to if Emerson closes? How is the district going to ensure that support for students who are enrolled in Emerson because of its special education programs will be readily available in another school?
+1. Decision comments or scoring information is not available on the [Boundary Options Committee's data](https://resources.finalsite.net/images/v1689889156/slcschoolsorg/msnrax3oquvts0jx4b0i/Ranking.pdf). Is this publicly available spreadsheet the same spreadsheet that the Board is reviewing to make their decisions? What do their scoring mean? Where is the rubrik for their data?
+2. On August 1, why did majority of the Board voted to move forward with keeping Emerson on the list of possible closure when parents provided them evidence-based data sourced from SLCSD's very own website to prove that Emerson should not be on this list of 7? For something as important as the topic of school closure, why is one member not present at all during this decision?
+4. On August 1st, did the district change their definition of "right-sizing" schools mid-process to explicitly mean "an average of at least three neighborhood classrooms per grade level (separate from our classrooms for district programs, such as Magnet ELP or Dual Language Immersion)?" What data is this "right-sizing" "educational model" based from? Where does behavioral and special education classes fit in this model? What is the classroom size in a right size school? How are they going to apply this model in all precincts? What is the timeline to apply this model in all precincts?
+5. How much will it cost to close Emerson? What will happen to the "money saved" from closing Emerson? Will the district keep the land if Emerson closes?
+6. It does not take overnight to rebuild programs in other schools. Emerson is home to a number of established academic and special education programs. What is the timeline to rebuild those programs in which other schools?
+7. What school would the Emerson neighborhood students go to if Emerson closes? How is the district going to ensure that support for students who are enrolled in Emerson because of its special education programs will be readily available in another school?
 
 ## Other things to note:
 
@@ -109,10 +110,18 @@ Emerson parents volunteer at the school every day. Their active involvement not 
 - [You can help keep Emerson open by emailing the Board.](https://www.slcschools.org/board-of-education)
 - [You can help keep Emerson open by emailing the Superintendent's Office.](https://www.slcschools.org/departments/superintendents-office)
 - [Council Meeting Notes](https://resources.finalsite.net/images/v1689197476/slcschoolsorg/lgzj2vrlba27zbobmgam/EmersonCommunityCouncilMeeting04-12-23.pdf)
+- [August 2, 2023 Mohamed Baayd at Sugar House Community Council (1:30 to 22:40)](https://www.youtube.com/live/H2ipW_5DW2g?feature=share&t=90)
 - [August 1, 2023 Board Meeting Comments (6:56 to 37:23)](https://www.youtube.com/live/3WFBqnKmgy0?feature=share&t=416)
-- [Salt Lake Tribune: Current SLCSD School Closures List Presents Glaring Issues like Equity and Transparency](https://www.sltrib.com/opinion/commentary/2023/07/28/marina-gomberg-wonders-if-proposed/)
-- [Salt Lake Tribune: Keep Emerson Elementary Open](https://www.sltrib.com/opinion/commentary/2023/07/21/alyssa-campos-keep-emerson/)
-- [Salt Lake Tribune: Invest in Public Education](https://www.sltrib.com/opinion/letters/2023/07/20/letter-potential-closure-salt-lake/)
+
+**["We have the walkability, the sustainability, the community. We have the diversity, the special programs, but it seems like they aren’t considering that with this committee.” - Matt Pace, Emerson parent]**(https://www.fox13now.com/news/local-news/salt-lake-city-school-district-moves-forward-with-study-on-possible-closures)
+
+**["Our community deserves to have a school that works well with everyone." -Cora McNamee, Emerson student]**(https://www.abc4.com/video/salt-lake-city-school-district-heard-arguments-for-keeping-schools-open/8870754/)
+
+- [SLTrib: All 7 Proposed SLC Schools Will Be Studied for Closure](https://www.sltrib.com/news/education/2023/08/01/tonight-salt-lake-citys-school/)
+- [SLTrib: What put these 7 SLC Schools on Radar for Closure?](https://www.sltrib.com/news/education/2023/08/01/why-are-these-7-salt-lake-city/)
+- [SLTrib: Current SLCSD School Closures List Presents Glaring Issues like Equity and Transparency](https://www.sltrib.com/opinion/commentary/2023/07/28/marina-gomberg-wonders-if-proposed/)
+- [SLTrib: Keep Emerson Elementary Open](https://www.sltrib.com/opinion/commentary/2023/07/21/alyssa-campos-keep-emerson/)
+- [SLTrib: Invest in Public Education](https://www.sltrib.com/opinion/letters/2023/07/20/letter-potential-closure-salt-lake/)
 - [KUTV: Surprise, School with High Enrollment on Closure List](https://kutv.com/news/crisis-in-the-classroom/parents-shocked-by-salt-lake-schools-listed-for-possible-closure-despite-high-enrollment-emerson-elementary-large-student-body-programs-public-comment)
 
 ## Emerson Elementary History
