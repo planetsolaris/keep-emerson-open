@@ -90,7 +90,7 @@ Emerson parents volunteer at the school every day. Their active involvement not 
 
 ## Ask the School Board:
 
-1. On August 1st, did the District change their definition of "right-sizing" schools mid-process to explicitly mean "an average of three neighborhood classrooms per grade level?" What data is this "right-sizing" "educational model" based from?
+1. On August 1st, did the District change their definition of "right-sizing" schools mid-process to explicitly mean "an average of at least three neighborhood classrooms per grade level (separate from our classrooms for district programs, such as Magnet ELP or Dual Language Immersion)?" What data is this "right-sizing" "educational model" based from? Where does behavioral and special education classes fit in this model? What is the classroom size in a right size school? How are they going to apply this model in all precincts? What is the timeline to apply this model in all precincts?
 2. Will the district keep the land if Emerson closes?
 3. How much will it cost to close Emerson? What will happen to the "money saved" from closing Emerson?
 4. It does not take overnight to rebuild programs in other schools. Emerson is home to a number of established academic and special education programs. What is the timeline to rebuild those programs in which other schools?
