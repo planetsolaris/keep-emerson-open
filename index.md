@@ -109,7 +109,6 @@ Emerson parents volunteer at the school every day. Their active involvement not 
 - [You can help keep Emerson open by leaving the Board feedback online.](https://saltlakedistrict.sjc1.qualtrics.com/jfe/form/SV_bm7M6vIXQLQQAHc)
 - [You can help keep Emerson open by emailing the Board.](https://www.slcschools.org/board-of-education)
 - [You can help keep Emerson open by emailing the Superintendent's Office.](https://www.slcschools.org/departments/superintendents-office)
-- [Council Meeting Notes](https://resources.finalsite.net/images/v1689197476/slcschoolsorg/lgzj2vrlba27zbobmgam/EmersonCommunityCouncilMeeting04-12-23.pdf)
 - [August 2, 2023 Mohamed Baayd at Sugar House Community Council (1:30 to 22:40)](https://www.youtube.com/live/H2ipW_5DW2g?feature=share&t=90)
 - [August 1, 2023 Board Meeting Comments (6:56 to 37:23)](https://www.youtube.com/live/3WFBqnKmgy0?feature=share&t=416)
 
@@ -118,12 +117,13 @@ Emerson parents volunteer at the school every day. Their active involvement not 
 [**"Our community deserves to have a school that works well with everyone." -Cora McNamee, Emerson student**](https://www.abc4.com/video/salt-lake-city-school-district-heard-arguments-for-keeping-schools-open/8870754/)
 
 - [SLTrib: All 7 Proposed SLC Schools Will Be Studied for Closure](https://www.sltrib.com/news/education/2023/08/01/tonight-salt-lake-citys-school/)
-- [KUTV: Parents Rally for Their Kids' Schools]https://kutv.com/news/crisis-in-the-classroom/parents-rally-to-convince-district-to-keep-salt-lake-city-schools-open-elementary
+- [KUTV: Parents Rally for Their Kids' Schools](https://kutv.com/news/crisis-in-the-classroom/parents-rally-to-convince-district-to-keep-salt-lake-city-schools-open-elementary)
 - [SLTrib: What put these 7 SLC Schools on Radar for Closure?](https://www.sltrib.com/news/education/2023/08/01/why-are-these-7-salt-lake-city/)
 - [SLTrib: Current SLCSD School Closures List Presents Glaring Issues like Equity and Transparency](https://www.sltrib.com/opinion/commentary/2023/07/28/marina-gomberg-wonders-if-proposed/)
 - [SLTrib: Keep Emerson Elementary Open](https://www.sltrib.com/opinion/commentary/2023/07/21/alyssa-campos-keep-emerson/)
 - [SLTrib: Invest in Public Education](https://www.sltrib.com/opinion/letters/2023/07/20/letter-potential-closure-salt-lake/)
 - [KUTV: Surprise, School with High Enrollment on Closure List](https://kutv.com/news/crisis-in-the-classroom/parents-shocked-by-salt-lake-schools-listed-for-possible-closure-despite-high-enrollment-emerson-elementary-large-student-body-programs-public-comment)
+- [April 2023 Emerson SCC Meeting Notes](https://resources.finalsite.net/images/v1689197476/slcschoolsorg/lgzj2vrlba27zbobmgam/EmersonCommunityCouncilMeeting04-12-23.pdf)
 
 ## Emerson Elementary History
 
