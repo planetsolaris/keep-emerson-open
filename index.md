@@ -91,10 +91,15 @@ The potential loss of these four schools would significantly impact the fabric o
 ## Ask the School Board:
 
 🦅 Decision comments or scoring information is not available on the [Boundary Options Committee's Spreadsheet](https://resources.finalsite.net/images/v1689889156/slcschoolsorg/msnrax3oquvts0jx4b0i/Ranking.pdf). Is this publicly available spreadsheet the same data/information that the Board is reviewing to make their decisions? What does the scoring mean? Where is the rubric for this data? How did the committee come up with the ranking when there's no meaning as to what the numbers are on their spreadsheet?\
+\
 🦅 On August 1, why did majority of the Board voted to move forward with keeping Emerson on the list of possible closure when parents provided them evidence-based data sourced from SLCSD's very own website (for example, [Fall Enrollment 2022](https://resources.finalsite.net/images/v1674672795/slcschoolsorg/sggt8uoni0hckkbdgvte/FallEnrollment2022.pdf)) to prove that Emerson should not be on this list of 7 schools? How can the Emerson community be assured that the process is fair and their input is considered when Emerson wasn't removed on this list of 7 schools after the Board has been provided with Emerson information?\
+\
 🦅 On August 1st, did the district change their definition of "right-sizing" schools mid-process to explicitly mean "an average of at least three neighborhood classrooms per grade level (separate from our classrooms for district programs, such as Magnet ELP or Dual Language Immersion)?" What data is this "right-sizing" "educational model" based from? Where do behavioral and special education classes fit in this model? If right-sizing a school is explicitly limited to neighborhood families, do [school choice](https://www.slcschools.org/departments/school-choice) students have space in a right size school? What is the classroom size in a right size school? How is this model going to be applied in all precincts? What is the timeline to apply this model in all precincts?\
+\
 🦅 It does not take overnight to rebuild programs in other schools. Emerson is home to a number of established academic and special education programs. What is the timeline to rebuild those programs in which other schools?\
+\
 🦅 What school would the Emerson neighborhood students go to if Emerson closes? How is the district going to ensure that support for students who are enrolled in Emerson because of its special education programs will be readily available in another school? How is the district going to support our teachers?\
+\
 🦅 How much will it cost to close Emerson? What will happen to the "money saved" from closing Emerson? Will the district keep the land if Emerson closes?
 
 ## Other things to note:
