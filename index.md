@@ -31,10 +31,20 @@ This site aims to provide insights into each of these factors, underscoring thei
 - Emerson is not in a major thoroughfare like 700 East so students are not playing by busy roads or having to cross 6-car lane traffic to get to/from school.
 - Emerson still serves a lot of students in the neighborhood and a lot of parents in the community bike or walk their kids to/from school (some, out of necessity).
 - Redistricting of the children in Emerson’s boundaries will mean further walking distances, either across busy 700 East or up difficult hill (snowy during winter) on 1300 South.
-- Emerson is the only school in the district with two aftercare programs within .5 miles of walking distance from the school (St John's CCDC Sugarhouse and Arte Primero Studios).
+- Emerson is the only school in the district with two aftercare programs within .5 miles of walking distance from the school (Arte Primero Studios and St. John's CCDC Sugarhouse).
 - Classes are able to have safe walking field trips around the community (Free Little Libraries, parks, post office, etc.).
 - The city is also [improving 1100 East](https://www.slc.gov/mystreet/2022/12/12/1100east/) near Emerson to “provide safety improvements, traffic calming features, and bicycle lanes along the corridor.”
 - Emerson is accessible via [UTA](https://www.rideuta.com/Fares-And-Passes/Pass-Programs/UTA-School-Pass-Programs/Salt-Lake-City-School-District) bus routes 209 and 220.
+
+## Cost to Operate (building, utilities, etc.)
+
+Sourced from the [Salt Lake City School District Sustainability Action Plan](https://resources.finalsite.net/images/v1641931356/slcschoolsorg/irjphywgl0dtrb8n8in0/sustainability-resolution-english.pdf), Emerson has 6th lowest utility cost per student, 5th lowest emissions per student, 12th lowest Energy Use Intensity ('miles per gallon' of the school), and 9th lowest water usage compared to all elementary schools in the district.
+
+Emerson has recently invested in upgrades that made the school energy-efficient, with energy-saving lights and an installation of solar panels. These enhancements are projected to further lower the school's energy costs, ensuring a greener and more eco-conscious future.
+
+Beyond its commitment to sustainability, Emerson thrives as a close-knit and proactive community. The dedication of parents, teachers, and supporters knows no bounds, as evidenced by consistently surpassing fundraising goals. This remarkable achievement not only demonstrates unwavering community support but also paves the way for enriching educational experiences.
+
+Emerson parents volunteer at the school every day. Their active involvement not only fosters an inspiring learning environment where students flourish but also serves as a cost-saving measure for the school. With dedicated volunteers generously giving their time and talents, the school can allocate resources more efficiently, redirecting funds towards enriching educational programs and further enhancing the student experience. Students are nurtured by the care and encouragement of those around them, benefiting from the invaluable contributions of our dedicated volunteers.
 
 ## Enrollment Trends
 
@@ -78,19 +88,9 @@ In Central City, a staggering four out of the seven schools find themselves on t
 
 The potential loss of these four schools would significantly impact the fabric of this area, which can also be challenging to fill in the future. Emerson is a vital cornerstone of our community: it is a phenomenal public elementary school in the neighborhood that just works. The school ground also becomes a community gathering point in the evenings when dog owners bring their dogs to the field, parents with babies and toddlers play in the playground, and students with their caregivers also stop by.
 
-## Cost to Operate (building, utilities, etc.)
-
-Sourced from the [Salt Lake City School District Sustainability Action Plan](https://resources.finalsite.net/images/v1641931356/slcschoolsorg/irjphywgl0dtrb8n8in0/sustainability-resolution-english.pdf), Emerson has 6th lowest utility cost per student, 5th lowest emissions per student, 12th lowest Energy Use Intensity ('miles per gallon' of the school), and 9th lowest water usage compared to all elementary schools in the district.
-
-Emerson has recently invested in upgrades that made the school energy-efficient, with energy-saving lights and an installation of solar panels. These enhancements are projected to further lower the school's energy costs, ensuring a greener and more eco-conscious future.
-
-Beyond its commitment to sustainability, Emerson thrives as a close-knit and proactive community. The dedication of parents, teachers, and supporters knows no bounds, as evidenced by consistently surpassing fundraising goals. This remarkable achievement not only demonstrates unwavering community support but also paves the way for enriching educational experiences.
-
-Emerson parents volunteer at the school every day. Their active involvement not only fosters an inspiring learning environment where students flourish but also serves as a cost-saving measure for the school. With dedicated volunteers generously giving their time and talents, the school can allocate resources more efficiently, redirecting funds towards enriching educational programs and further enhancing the student experience. Students are nurtured by the care and encouragement of those around them, benefiting from the invaluable contributions of our dedicated volunteers.
-
 ## Ask the School Board:
 
-1. Decision comments or scoring information is not available on the [Boundary Options Committee's Spreadsheet](https://resources.finalsite.net/images/v1689889156/slcschoolsorg/msnrax3oquvts0jx4b0i/Ranking.pdf). Is this publicly available spreadsheet the same data/information that the Board is reviewing to make their decisions? What does the scoring mean? Where is the rubrik for this data? How did the committee come up with the ranking when there's no meaning as to what the numbers are on their spreadsheet?
+1. Decision comments or scoring information is not available on the [Boundary Options Committee's Spreadsheet](https://resources.finalsite.net/images/v1689889156/slcschoolsorg/msnrax3oquvts0jx4b0i/Ranking.pdf). Is this publicly available spreadsheet the same data/information that the Board is reviewing to make their decisions? What does the scoring mean? Where is the rubric for this data? How did the committee come up with the ranking when there's no meaning as to what the numbers are on their spreadsheet?
 2. On August 1, why did majority of the Board voted to move forward with keeping Emerson on the list of possible closure when parents provided them evidence-based data sourced from SLCSD's very own website (for example, [Fall Enrollment 2022](https://resources.finalsite.net/images/v1674672795/slcschoolsorg/sggt8uoni0hckkbdgvte/FallEnrollment2022.pdf)) to prove that Emerson should not be on this list of 7 schools? How can the Emerson community be assured that the process is fair and their input is considered when Emerson wasn't removed on this list of 7 schools after the Board has been provided with Emerson information?
 3. On August 1st, did the district change their definition of "right-sizing" schools mid-process to explicitly mean "an average of at least three neighborhood classrooms per grade level (separate from our classrooms for district programs, such as Magnet ELP or Dual Language Immersion)?" What data is this "right-sizing" "educational model" based from? Where do behavioral and special education classes fit in this model? If right-sizing a school is explicitly limited to neighborhood families, do [school choice](https://www.slcschools.org/departments/school-choice) students have space in a right size school? What is the classroom size in a right size school? How is this model going to be applied in all precincts? What is the timeline to apply this model in all precincts? 
 4. It does not take overnight to rebuild programs in other schools. Emerson is home to a number of established academic and special education programs. What is the timeline to rebuild those programs in which other schools?
@@ -127,6 +127,6 @@ Emerson parents volunteer at the school every day. Their active involvement not 
 
 ## Emerson Elementary History
 
-Emerson was established in 1894, around the inception of this state ([24:01 in this video](https://youtu.be/14nB6U4BdiM?t=1441)).The current building is from the late 1970’s and was designed with energy conservation in mind. A book called ["101 Years of Emerson Elementary School: The Gift of Its Inspired Children"](https://catalog.slcpl.org/search/title.aspx?ctx=1.1033.0.0.7&pos=1&cn=56693) is available in the Main SLC Public Library’s Special Collections.
+Emerson was established in 1894, around the inception of this state ([24:01 in this video](https://youtu.be/14nB6U4BdiM?t=1441)). The current building is from the late 1970’s and was designed with energy conservation in mind. A book called ["101 Years of Emerson Elementary School: The Gift of Its Inspired Children"](https://catalog.slcpl.org/search/title.aspx?ctx=1.1033.0.0.7&pos=1&cn=56693) is available in the Main SLC Public Library’s Special Collections.
 
 ![Whale says keep Emerson open](whale.jpg)
