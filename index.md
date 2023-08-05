@@ -2,7 +2,7 @@
 
 Hello, we are members of the Emerson Elementary community.
 
-Emerson is a public elementary school in Salt Lake City, Utah that is currently on a list for potential closure despite the fact that it is a top performing school in the state and has been [nationally recognized](https://nationalblueribbonschools.ed.gov/awardwinners/winning/21ut102pu_emerson_elementary_school.html).
+Emerson is a public elementary school in Salt Lake City, Utah that is currently on a list for [potential closure](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study) despite the fact that it is a top performing school in the state and has been [nationally recognized](https://nationalblueribbonschools.ed.gov/awardwinners/winning/21ut102pu_emerson_elementary_school.html).
 
 Our mission is to create a hub for gathering and sharing information about Emerson with a passionate determination to ensure its continued operation.
 
@@ -34,7 +34,7 @@ This site aims to provide insights into each of these factors, underscoring thei
 - Emerson is the only school in the district with two aftercare programs within .5 miles of walking distance from the school (St John's CCDC Sugarhouse and Arte Primero Studios).
 - Classes are able to have safe walking field trips around the community (Free Little Libraries, parks, post office, etc.).
 - The city is also [improving 1100 East](https://www.slc.gov/mystreet/2022/12/12/1100east/) near Emerson to “provide safety improvements, traffic calming features, and bicycle lanes along the corridor.”
-- The school is accessible via UTA bus routes 209 and 220.
+- Emerson is accessible via [UTA](https://www.rideuta.com/Fares-And-Passes/Pass-Programs/UTA-School-Pass-Programs/Salt-Lake-City-School-District) bus routes 209 and 220.
 
 ## Enrollment Trends
 
@@ -99,8 +99,8 @@ Emerson parents volunteer at the school every day. Their active involvement not 
 
 ## Other things to note:
 
-- Parents can't emphasize enough that Emerson is a school that just works: children are happy and thriving, teachers are dedicated and passionate, and the school leadership is highly commendable. It is a school with a synergy that can't be replicated anywhere else.
-- Emerson has a diverse student body as the neighborhood children come from different socioeconomic backgrounds (mixed-income families, renters/property owners, parents with varying jobs they can impart with the student body, etc.). The students are also exposed to different abilities/neurodiversity as teachers, administrators, and staff encourage collaboration of the students.
+- Parents can't emphasize enough that **Emerson is a school that just works**: children are happy and thriving, teachers are dedicated and passionate, and the school leadership is highly commendable. It is a school with a synergy that can't be replicated anywhere else.
+- Emerson has a diverse student body as the neighborhood children come from different experiences (cultures, neurodiversity, socioeconomic backgrounds, etc.). The students are encouraged to collaborate and socialize with everyone in the school.
 - The Emerson community values clean air, inclusion, and progress. The city is already trying to better bridge Central City (west and east) with projects like [900 South Reconstruction](https://www.slc.gov/mystreet/2023/02/16/900-south-900-east-to-900-west/) and [Kensington Byway](https://www.slc.gov/transportation/neighborhood-byways/kensington/); Emerson is between these projects.
 
 ## Community Input
