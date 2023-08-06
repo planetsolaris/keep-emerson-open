@@ -2,7 +2,7 @@
 
 Hello, we are members of the Emerson Elementary community.
 
-Emerson is a public elementary school in Salt Lake City, Utah that is currently on a list for [potential closure](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study) despite the fact that it is a top performing school in the state and has been [nationally recognized](https://nationalblueribbonschools.ed.gov/awardwinners/winning/21ut102pu_emerson_elementary_school.html).
+[Emerson](https://emerson.slcschools.org) is a public elementary school in Salt Lake City, Utah that is currently on a list for [potential closure](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study) despite the fact that it is a [nationally recognized school](https://nationalblueribbonschools.ed.gov/awardwinners/winning/21ut102pu_emerson_elementary_school.html).
 
 Our mission is to create a hub for gathering and sharing information about Emerson with a passionate determination to ensure its continued operation.
 
@@ -29,9 +29,9 @@ This site aims to provide insights into each of these factors, underscoring thei
 ## Accessibility and Safety
 
 - Emerson is not in a major thoroughfare like 700 East so students are not playing by busy roads or having to cross 6-car lane traffic to get to/from school.
-- Emerson still serves a lot of students in the neighborhood and a lot of parents in the community bike or walk their kids to/from school (some, out of necessity).
+- Emerson still serves a lot of students in the neighborhood and the students bike or walk to/from school with their parents/caregivers.
 - Redistricting of the children in Emerson’s boundaries will mean further walking distances, either across busy 700 East or up difficult hill (snowy during winter) on 1300 South.
-- Emerson is the only school in the district with two aftercare programs within .5 miles of walking distance from the school (Arte Primero Studios and St. John's CCDC Sugarhouse).
+- Emerson is the only school in the district with aftercare programs within .5 miles of walking distance from the school ([like Arte Primero Studios and St. John's CCDC Sugarhouse](https://resources.finalsite.net/images/v1621450917/slcschoolsorg/xyae2owyn1qmay2mws0s/Emersondaycares2021.pdf)).
 - Classes are able to have safe walking field trips around the community (Free Little Libraries, parks, post office, etc.).
 - The city is also [improving 1100 East](https://www.slc.gov/mystreet/2022/12/12/1100east/) near Emerson to “provide safety improvements, traffic calming features, and bicycle lanes along the corridor.”
 - Emerson is accessible via [UTA](https://www.rideuta.com/Fares-And-Passes/Pass-Programs/UTA-School-Pass-Programs/Salt-Lake-City-School-District) bus routes 209 and 220.
@@ -105,8 +105,9 @@ The potential loss of these four schools would significantly impact the fabric o
 ## Other things to note:
 
 - Parents can't emphasize enough that **Emerson is a school that just works**: children are happy and thriving, teachers are dedicated and passionate, and the school leadership is highly commendable. It is a school with a synergy that can't be replicated anywhere else.
-- Emerson has a diverse student body as the students come from different experiences (cultures, neurodiversity, socioeconomic backgrounds, etc.). The students are encouraged to collaborate and socialize with everyone in the school.
+- Emerson has a diverse student body as the students come from different experiences (abilities/neurodiversity, cultures, socioeconomic backgrounds, etc.). The students are encouraged to collaborate and socialize with everyone in the school.
 - The Emerson community values clean air, inclusion, and progress. The city is already trying to better bridge Central City (west and east) with projects like [900 South Reconstruction](https://www.slc.gov/mystreet/2023/02/16/900-south-900-east-to-900-west/) and [Kensington Byway](https://www.slc.gov/transportation/neighborhood-byways/kensington/); Emerson is between these projects.
+- Emerson [State Profile](https://utahschoolgrades.schools.utah.gov/School/Profile/?SchoolID=1116&DistrictID=1107&SchoolNbr=136&SchoolLevel=K8&IsSplitSchool=0&schoolyearendyear=2022) **|** [2021-2022 Grade](https://utahschoolgrades.schools.utah.gov/School/OverAllPerformance?SchoolID=1116&DistrictID=1107&SchoolNbr=136&SchoolLevel=K8&IsSplitSchool=0&schoolyearendyear=2022)
 
 ## Community Input
 
