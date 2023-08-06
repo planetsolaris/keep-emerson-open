@@ -42,7 +42,7 @@ Sourced from the [Salt Lake City School District Sustainability Action Plan](htt
 
 Emerson has recently invested in upgrades that made the school energy-efficient, with energy-saving lights and an installation of solar panels. These enhancements are projected to further lower the school's energy costs, ensuring a greener and more eco-conscious future.
 
-Beyond its commitment to sustainability, Emerson thrives as a close-knit and proactive community. The dedication of parents, teachers, and supporters knows no bounds, as evidenced by consistently surpassing fundraising goals. This remarkable achievement not only demonstrates unwavering community support but also paves the way for enriching educational experiences.
+Beyond its commitment to sustainability, Emerson thrives as a close-knit and proactive community. The dedication of parents, teachers, and supporters knows no bounds, as evidenced by consistently surpassing [fundraising](https://m.facebook.com/photo.php/?fbid=719896109936485) goals. This remarkable achievement not only demonstrates unwavering community support but also paves the way for enriching educational experiences.
 
 Emerson parents volunteer at the school every day. Their active involvement not only fosters an inspiring learning environment where students flourish but also serves as a cost-saving measure for the school. With dedicated volunteers generously giving their time and talents, the school can allocate resources more efficiently, redirecting funds towards enriching educational programs and further enhancing the student experience. Students are nurtured by the care and encouragement of those around them, benefiting from the invaluable contributions of our dedicated volunteers.
 
@@ -107,7 +107,8 @@ The potential loss of these four schools would significantly impact the fabric o
 - Parents can't emphasize enough that **Emerson is a school that just works**: children are happy and thriving, teachers are dedicated and passionate, and the school leadership is highly commendable. It is a school with a synergy that can't be replicated anywhere else.
 - Emerson has a diverse student body as the students come from different experiences (abilities/neurodiversity, cultures, socioeconomic backgrounds, etc.). The students are encouraged to collaborate and socialize with everyone in the school.
 - The Emerson community values clean air, inclusion, and progress. The city is already trying to better bridge Central City (west and east) with projects like [900 South Reconstruction](https://www.slc.gov/mystreet/2023/02/16/900-south-900-east-to-900-west/) and [Kensington Byway](https://www.slc.gov/transportation/neighborhood-byways/kensington/); Emerson is between these projects.
-- [State Profile](https://utahschoolgrades.schools.utah.gov/School/Profile/?SchoolID=1116&DistrictID=1107&SchoolNbr=136&SchoolLevel=K8&IsSplitSchool=0&schoolyearendyear=2022) | [2021-2022 Grade](https://utahschoolgrades.schools.utah.gov/School/OverAllPerformance?SchoolID=1116&DistrictID=1107&SchoolNbr=136&SchoolLevel=K8&IsSplitSchool=0&schoolyearendyear=2022)
+\
+[State Profile](https://utahschoolgrades.schools.utah.gov/School/Profile/?SchoolID=1116&DistrictID=1107&SchoolNbr=136&SchoolLevel=K8&IsSplitSchool=0&schoolyearendyear=2022) | [2021-2022 Grade](https://utahschoolgrades.schools.utah.gov/School/OverAllPerformance?SchoolID=1116&DistrictID=1107&SchoolNbr=136&SchoolLevel=K8&IsSplitSchool=0&schoolyearendyear=2022)
 
 ## Community Input
 
