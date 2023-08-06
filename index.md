@@ -31,7 +31,7 @@ This site aims to provide insights into each of these factors, underscoring thei
 - Emerson is not in a major thoroughfare like 700 East so students are not playing by busy roads or having to cross 6-car lane traffic to get to/from school.
 - Emerson still serves a lot of students in the neighborhood and the students bike or walk to/from school with their parents/caregivers.
 - Redistricting of the children in Emerson’s boundaries will mean further walking distances, either across busy 700 East or up difficult hill (snowy during winter) on 1300 South.
-- Emerson is the only school in the district with aftercare programs within .5 miles of walking distance from the school ([like Arte Primero Studios and St. John's CCDC Sugarhouse](https://resources.finalsite.net/images/v1621450917/slcschoolsorg/xyae2owyn1qmay2mws0s/Emersondaycares2021.pdf)).
+- Emerson is the only school in the district with aftercare programs within .5 miles of walking distance from the school (like [Arte Primero Studios and St. John's CCDC Sugarhouse](https://resources.finalsite.net/images/v1621450917/slcschoolsorg/xyae2owyn1qmay2mws0s/Emersondaycares2021.pdf)).
 - Classes are able to have safe walking field trips around the community (Free Little Libraries, parks, post office, etc.).
 - The city is also [improving 1100 East](https://www.slc.gov/mystreet/2022/12/12/1100east/) near Emerson to “provide safety improvements, traffic calming features, and bicycle lanes along the corridor.”
 - Emerson is accessible via [UTA](https://www.rideuta.com/Fares-And-Passes/Pass-Programs/UTA-School-Pass-Programs/Salt-Lake-City-School-District) bus routes 209 and 220.
@@ -109,7 +109,7 @@ The potential loss of these four schools would significantly impact the fabric o
 - The Emerson community values clean air, inclusion, and progress. The city is already trying to better bridge Central City (west and east) with projects like [900 South Reconstruction](https://www.slc.gov/mystreet/2023/02/16/900-south-900-east-to-900-west/) and [Kensington Byway](https://www.slc.gov/transportation/neighborhood-byways/kensington/); Emerson is between these projects.
 \
 \
-[State Profile](https://utahschoolgrades.schools.utah.gov/School/Profile/?SchoolID=1116&DistrictID=1107&SchoolNbr=136&SchoolLevel=K8&IsSplitSchool=0&schoolyearendyear=2022) | [2021-2022 Grade](https://utahschoolgrades.schools.utah.gov/School/OverAllPerformance?SchoolID=1116&DistrictID=1107&SchoolNbr=136&SchoolLevel=K8&IsSplitSchool=0&schoolyearendyear=2022)
+2021-2022 [School State Profile](https://utahschoolgrades.schools.utah.gov/School/Profile/?SchoolID=1116&DistrictID=1107&SchoolNbr=136&SchoolLevel=K8&IsSplitSchool=0&schoolyearendyear=2022) | [Grade](https://utahschoolgrades.schools.utah.gov/School/OverAllPerformance?SchoolID=1116&DistrictID=1107&SchoolNbr=136&SchoolLevel=K8&IsSplitSchool=0&schoolyearendyear=2022) | [District State Profile](https://utahschoolgrades.schools.utah.gov/District/Profile?DistrictID=1107&schoolyearendyear=2022)
 
 ## Community Input
 
@@ -130,7 +130,7 @@ The potential loss of these four schools would significantly impact the fabric o
 - [SLTrib: Current SLCSD School Closures List Presents Glaring Issues like Equity and Transparency](https://www.sltrib.com/opinion/commentary/2023/07/28/marina-gomberg-wonders-if-proposed/)
 - [SLTrib: Keep Emerson Elementary Open](https://www.sltrib.com/opinion/commentary/2023/07/21/alyssa-campos-keep-emerson/)
 - [SLTrib: Invest in Public Education](https://www.sltrib.com/opinion/letters/2023/07/20/letter-potential-closure-salt-lake/)
-- [KUTV: Surprise, School with High Enrollment on Closure List](https://kutv.com/news/crisis-in-the-classroom/parents-shocked-by-salt-lake-schools-listed-for-possible-closure-despite-high-enrollment-emerson-elementary-large-student-body-programs-public-comment)
+- [KUTV: Shock, School with High Enrollment on Closure List](https://kutv.com/news/crisis-in-the-classroom/parents-shocked-by-salt-lake-schools-listed-for-possible-closure-despite-high-enrollment-emerson-elementary-large-student-body-programs-public-comment)
 - [April 2023 Emerson SCC Meeting Notes](https://resources.finalsite.net/images/v1689197476/slcschoolsorg/lgzj2vrlba27zbobmgam/EmersonCommunityCouncilMeeting04-12-23.pdf)
 
 ## Emerson Elementary History
