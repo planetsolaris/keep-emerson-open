@@ -130,7 +130,7 @@ The potential loss of these four schools would significantly impact the fabric o
 - [SLTrib: All 7 Proposed SLC Schools Will Be Studied for Closure](https://www.sltrib.com/news/education/2023/08/01/tonight-salt-lake-citys-school/)
 - [KUTV: Parents Rally for Their Kids' Schools](https://kutv.com/news/crisis-in-the-classroom/parents-rally-to-convince-district-to-keep-salt-lake-city-schools-open-elementary)
 - [SLTrib: What put these 7 SLC Schools on Radar for Closure?](https://www.sltrib.com/news/education/2023/08/01/why-are-these-7-salt-lake-city/)
-- [SLTrib: Current SLCSD School Closures List Presents Glaring Issues like Equity and Transparency](https://www.sltrib.com/opinion/commentary/2023/07/28/marina-gomberg-wonders-if-proposed/)
+- [SLTrib: Is SLC Proposed Closure List an Equity Issue Veiled as Fiscal Pragmatism?](https://www.sltrib.com/opinion/commentary/2023/07/28/marina-gomberg-wonders-if-proposed/)
 - [SLTrib: Keep Emerson Elementary Open](https://www.sltrib.com/opinion/commentary/2023/07/21/alyssa-campos-keep-emerson/)
 - [SLTrib: Invest in Public Education](https://www.sltrib.com/opinion/letters/2023/07/20/letter-potential-closure-salt-lake/)
 - [KUTV: Shock, School with High Enrollment on Closure List](https://kutv.com/news/crisis-in-the-classroom/parents-shocked-by-salt-lake-schools-listed-for-possible-closure-despite-high-enrollment-emerson-elementary-large-student-body-programs-public-comment)
