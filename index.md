@@ -117,6 +117,9 @@ The potential loss of these four schools would significantly impact the fabric o
 - [You can help keep Emerson open by leaving the Board feedback online.](https://saltlakedistrict.sjc1.qualtrics.com/jfe/form/SV_bm7M6vIXQLQQAHc)
 - [You can help keep Emerson open by emailing the Board.](https://www.slcschools.org/board-of-education)
 - [You can help keep Emerson open by emailing the Superintendent's Office.](https://www.slcschools.org/departments/superintendents-office)
+- **Important Dates**: [August 15, 2023 at 5 PM - Board Meeting](https://www.slcschools.org/board-of-education/board-meetings/2023-24-board-meetings), August 17, 2023 at 4 PM - Emerson Back-to-School Night, August 22, 2023 at 8 AM - First Day of School!
+- [SLTrib: Why do SLC school board members partially blame the city for potential school closures?](https://www.sltrib.com/news/education/2023/08/07/why-do-salt-lake-city-school-board/)
+- [SLTrib: Emerson Elementary was crucial to my formative experiences. It would be a huge mistake to close it.](https://www.sltrib.com/opinion/letters/2023/08/06/letter-emerson-elementary-was/)
 - [August 2, 2023 Precinct 5 Representative Mohamed Baayd at Sugar House Community Council (1:30 to 22:40)](https://www.youtube.com/live/H2ipW_5DW2g?feature=share&t=90)
 - [August 1, 2023 Board Meeting Comments (6:56 to 37:23)](https://www.youtube.com/live/3WFBqnKmgy0?feature=share&t=416)
 
@@ -132,7 +135,6 @@ The potential loss of these four schools would significantly impact the fabric o
 - [SLTrib: Invest in Public Education](https://www.sltrib.com/opinion/letters/2023/07/20/letter-potential-closure-salt-lake/)
 - [KUTV: Shock, School with High Enrollment on Closure List](https://kutv.com/news/crisis-in-the-classroom/parents-shocked-by-salt-lake-schools-listed-for-possible-closure-despite-high-enrollment-emerson-elementary-large-student-body-programs-public-comment)
 - [April 2023 Emerson SCC Meeting Notes](https://resources.finalsite.net/images/v1689197476/slcschoolsorg/lgzj2vrlba27zbobmgam/EmersonCommunityCouncilMeeting04-12-23.pdf)
-- **Important Dates**: [August 15, 2023 at 5 PM - Board Meeting](https://www.slcschools.org/board-of-education/board-meetings/2023-24-board-meetings), August 17, 2023 at 4 PM - Emerson Back-to-School Night, August 22, 2023 at 8 AM - First Day of School!
 
 ## Emerson Elementary History
 
