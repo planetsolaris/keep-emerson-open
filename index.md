@@ -32,7 +32,7 @@ This site aims to provide insights into each of these factors, underscoring thei
 - Emerson still serves a lot of students in the neighborhood and the students bike or walk to/from school with their parents/caregivers.
 - Redistricting of the children in Emerson’s boundaries will mean further walking distances, either across busy 700 East or up difficult hill (snowy during winter) on 1300 South.
 - Emerson is the only school in the district with aftercare programs within .5 miles of walking distance from the school (like [Arte Primero Studios and St. John's CCDC Sugarhouse](https://resources.finalsite.net/images/v1621450917/slcschoolsorg/xyae2owyn1qmay2mws0s/Emersondaycares2021.pdf)).
-- Classes are able to have safe walking field trips around the community (Free Little Libraries, parks, post office, etc.).
+- Classes are able to have safe walking field trips around the community (Little Free Libraries, parks, post office, etc.).
 - The city is also [improving 1100 East](https://www.slc.gov/mystreet/2022/12/12/1100east/) near Emerson to “provide safety improvements, traffic calming features, and bicycle lanes along the corridor.”
 - Emerson is accessible via [UTA](https://www.rideuta.com/Fares-And-Passes/Pass-Programs/UTA-School-Pass-Programs/Salt-Lake-City-School-District) bus routes 209 and 220.
 
