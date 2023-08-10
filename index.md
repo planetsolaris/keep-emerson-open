@@ -48,7 +48,7 @@ Emerson parents volunteer at the school every day. Their active involvement not 
 
 ## Enrollment Trends
 
-Emerson continues to serve a significant number of students from its local neighborhood. As per the [district's definition](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study/population-and-boundary-study-faq#fs-panel-80237) of “right-sized elementary school,” Emerson maintains a ratio of about three teachers per grade and offers full-day kindergarten classes. In Utah, parents have the choice of [open enrollment](https://le.utah.gov/xcode/Title53G/Chapter6/53G-6-S402.html) and many choose Emerson for its commitment to excellence.
+Emerson continues to serve a significant number of students from its local neighborhood. As per the [district's definition](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study#fs-panel-80603) of “right-sized elementary school,” Emerson maintains a ratio of about three teachers per grade and offers full-day kindergarten classes. In Utah, parents have the choice of [open enrollment](https://le.utah.gov/xcode/Title53G/Chapter6/53G-6-S402.html) and many choose Emerson for its commitment to excellence.
 
 Despite declining enrollment rates cited as a reason for potential closures, Emerson operates at 85% student capacity, marking the second-highest enrollment rate within the Salt Lake City School District. The table sourced from the [State Board of Education](https://www.schools.utah.gov/data/reports?mid=1424&tid=4) emphasizes in bold the enrollment rates for Emerson as well as the other schools on the list for potential closure.
 
