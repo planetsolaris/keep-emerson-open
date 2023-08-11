@@ -116,6 +116,7 @@ The potential loss of these four schools would significantly impact the fabric o
 - [You can help keep Emerson open by emailing the Board.](https://www.slcschools.org/board-of-education)
 - [You can help keep Emerson open by emailing the Superintendent's Office.](https://www.slcschools.org/departments/superintendents-office)
 - **Important Dates**: [August 15, 2023 at 5 PM - Board Meeting](https://www.slcschools.org/board-of-education/board-meetings/2023-24-board-meetings), August 17, 2023 at 4:30 PM - Emerson Back-to-School Night, August 22, 2023 at 8 AM - First Day of School!
+- [SLTrib: Emerson Elementary Families Deserve More Transparency](https://www.sltrib.com/opinion/commentary/2023/08/11/katie-wagner-emerson-elementary/)
 - [SLTrib: Why do SLC School Board Members Partially Blame the City for Potential School Closures?](https://www.sltrib.com/news/education/2023/08/07/why-do-salt-lake-city-school-board/)
 - [SLTrib: Emerson Elementary was crucial to my formative experiences. It would be a huge mistake to close it.](https://www.sltrib.com/opinion/letters/2023/08/06/letter-emerson-elementary-was/)
 - [August 2, 2023 Precinct 5 Representative Mohamed Baayd at Sugar House Community Council (1:30 to 22:40)](https://www.youtube.com/live/H2ipW_5DW2g?feature=share&t=90)
