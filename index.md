@@ -132,6 +132,8 @@ The potential loss of these four schools would significantly impact the fabric o
 - [SLTrib: Keep Emerson Elementary Open](https://www.sltrib.com/opinion/commentary/2023/07/21/alyssa-campos-keep-emerson/)
 - [SLTrib: Invest in Public Education](https://www.sltrib.com/opinion/letters/2023/07/20/letter-potential-closure-salt-lake/)
 - [KUTV: Shock, School with High Enrollment on Closure List](https://kutv.com/news/crisis-in-the-classroom/parents-shocked-by-salt-lake-schools-listed-for-possible-closure-despite-high-enrollment-emerson-elementary-large-student-body-programs-public-comment)
+- [KSLTV: Salt Lake Board Hears Recommendation for School Closures](https://ksltv.com/566708/right-sized-schools-salt-lake-board-hears-recommendations-for-school-closures/)
+- [KSLTV: SLCSD to Release List of Schools Facing Closure](https://ksltv.com/566611/salt-lake-school-district-to-release-list-of-schools-facing-closure/)
 - [April 2023 Emerson SCC Meeting Notes](https://resources.finalsite.net/images/v1689197476/slcschoolsorg/lgzj2vrlba27zbobmgam/EmersonCommunityCouncilMeeting04-12-23.pdf)
 
 ## Emerson Elementary History
