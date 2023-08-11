@@ -42,9 +42,9 @@ Sourced from the [Salt Lake City School District Sustainability Action Plan](htt
 
 Emerson has recently invested in upgrades that made the school energy-efficient, with energy-saving lights and an installation of solar panels. These enhancements are projected to further lower the school's energy costs, ensuring a greener and more eco-conscious future.
 
-Beyond its commitment to sustainability, Emerson thrives as a close-knit and proactive community. The dedication of parents, teachers, and supporters knows no bounds, as evidenced by consistently surpassing [fundraising](https://m.facebook.com/photo.php/?fbid=719896109936485) goals. This remarkable achievement not only demonstrates unwavering community support but also paves the way for enriching educational experiences.
+Beyond its commitment to sustainability, Emerson thrives as a close-knit and proactive community. The dedication of parents, teachers, and supporters knows no bounds, as evidenced by consistently surpassing [fundraising](https://m.facebook.com/photo.php/?fbid=719896109936485) goals. This remarkable achievement not only demonstrates unwavering community support, but also paves the way for enriching educational experiences.
 
-Emerson parents volunteer at the school every day. Their active involvement not only fosters an inspiring learning environment where students flourish but also serves as a cost-saving measure for the school. With dedicated volunteers generously giving their time and talents, the school can allocate resources more efficiently, redirecting funds towards enriching educational programs and further enhancing the student experience. Students are nurtured by the care and encouragement of those around them, benefiting from the invaluable contributions of our dedicated volunteers.
+Emerson parents volunteer at the school every day. Their active involvement not only fosters an inspiring learning environment where students flourish, but also serves as a cost-saving measure for the school. With dedicated volunteers generously giving their time and talents, the school can allocate resources more efficiently, redirecting funds towards enriching educational programs and further enhancing the student experience. Students are nurtured by the care and encouragement of those around them, benefiting from the invaluable contributions of our dedicated volunteers.
 
 ## Enrollment Trends
 
@@ -116,7 +116,7 @@ The potential loss of these four schools would significantly impact the fabric o
 - [You can help keep Emerson open by emailing the Board.](https://www.slcschools.org/board-of-education)
 - [You can help keep Emerson open by emailing the Superintendent's Office.](https://www.slcschools.org/departments/superintendents-office)
 - **Important Dates**: [August 15, 2023 at 5 PM - Board Meeting](https://www.slcschools.org/board-of-education/board-meetings/2023-24-board-meetings), August 17, 2023 at 4:30 PM - Emerson Back-to-School Night, August 22, 2023 at 8 AM - First Day of School!
-- [SLTrib: Why do SLC school board members partially blame the city for potential school closures?](https://www.sltrib.com/news/education/2023/08/07/why-do-salt-lake-city-school-board/)
+- [SLTrib: Why do SLC School Board Members Partially Blame the City for Potential School Closures?](https://www.sltrib.com/news/education/2023/08/07/why-do-salt-lake-city-school-board/)
 - [SLTrib: Emerson Elementary was crucial to my formative experiences. It would be a huge mistake to close it.](https://www.sltrib.com/opinion/letters/2023/08/06/letter-emerson-elementary-was/)
 - [August 2, 2023 Precinct 5 Representative Mohamed Baayd at Sugar House Community Council (1:30 to 22:40)](https://www.youtube.com/live/H2ipW_5DW2g?feature=share&t=90)
 - [August 1, 2023 Board Meeting Comments (6:56 to 37:23)](https://www.youtube.com/live/3WFBqnKmgy0?feature=share&t=416)
