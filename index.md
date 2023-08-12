@@ -108,7 +108,7 @@ The potential loss of these four schools would significantly impact the fabric o
 - The Emerson community values clean air, inclusion, and progress. The city is already trying to better bridge Central City (east and west) with projects like [900 South Reconstruction](https://www.slc.gov/mystreet/2023/02/16/900-south-900-east-to-900-west/) and [Kensington Byway](https://www.slc.gov/transportation/neighborhood-byways/kensington/); Emerson is between these projects.
 \
 \
-2021-2022 [School State Profile](https://utahschoolgrades.schools.utah.gov/School/Profile/?SchoolID=1116&DistrictID=1107&SchoolNbr=136&SchoolLevel=K8&IsSplitSchool=0&schoolyearendyear=2022) | [Grade](https://utahschoolgrades.schools.utah.gov/School/OverAllPerformance?SchoolID=1116&DistrictID=1107&SchoolNbr=136&SchoolLevel=K8&IsSplitSchool=0&schoolyearendyear=2022) | [District State Profile](https://utahschoolgrades.schools.utah.gov/District/Profile?DistrictID=1107&schoolyearendyear=2022)\
+2021-2022 [School State Profile](https://utahschoolgrades.schools.utah.gov/School/Profile/?SchoolID=1116&DistrictID=1107&SchoolNbr=136&SchoolLevel=K8&IsSplitSchool=0&schoolyearendyear=2022) | [Grade](https://utahschoolgrades.schools.utah.gov/School/OverAllPerformance?SchoolID=1116&DistrictID=1107&SchoolNbr=136&SchoolLevel=K8&IsSplitSchool=0&schoolyearendyear=2022) | [District State Profile](https://utahschoolgrades.schools.utah.gov/District/Profile?DistrictID=1107&schoolyearendyear=2022)
 
 ## Community Input
 
