@@ -121,7 +121,7 @@ The potential loss of these four schools would significantly impact the fabric o
 - [SLTrib: Emerson Elementary was crucial to my formative experiences. It would be a huge mistake to close it.](https://www.sltrib.com/opinion/letters/2023/08/06/letter-emerson-elementary-was/)
 - [August 2, 2023 Precinct 5 Representative Mohamed Baayd at Sugar House Community Council (1:30 to 22:40)](https://www.youtube.com/live/H2ipW_5DW2g?feature=share&t=90)
 - [August 1, 2023 Board Meeting Comments (6:56 to 37:23)](https://www.youtube.com/live/3WFBqnKmgy0?feature=share&t=416)
-- [August 1, 2023 Written Public Comment](https://resources.finalsite.net/images/v1691444837/slcschoolsorg/fcc14cganeijdendgbgf/PublicWrittenComment.pdf)
+- [August 1, 2023 Written Public Comments](https://resources.finalsite.net/images/v1691444837/slcschoolsorg/fcc14cganeijdendgbgf/PublicWrittenComment.pdf)
 
 [**"We have the walkability, the sustainability, the community. We have the diversity, the special programs, but it seems like they aren’t considering that with this committee.” -Matt Pace, Emerson parent**](https://www.fox13now.com/news/local-news/salt-lake-city-school-district-moves-forward-with-study-on-possible-closures)
 
