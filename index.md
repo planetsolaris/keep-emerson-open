@@ -113,6 +113,7 @@ The potential loss of these four schools would significantly impact the fabric o
 ## Community Input
 
 - [Keep Emerson Open Instagram](https://www.instagram.com/keepemersonopen)
+- [Board Meetings Request to Speak/Written Public Comments Info.](https://www.slcschools.org/board-of-education/board-meetings/request-to-speak)
 - [You can help keep Emerson open by leaving the Board feedback online.](https://saltlakedistrict.sjc1.qualtrics.com/jfe/form/SV_bm7M6vIXQLQQAHc)
 - [You can help keep Emerson open by emailing the Board.](https://www.slcschools.org/board-of-education)
 - [You can help keep Emerson open by emailing the Superintendent's Office.](https://www.slcschools.org/departments/superintendents-office)
