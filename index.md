@@ -113,11 +113,11 @@ The potential loss of these four schools would significantly impact the fabric o
 ## Community Input
 
 - [Keep Emerson Open Instagram](https://www.instagram.com/keepemersonopen)
+- **Important Dates**: August 17, 2023 at 4:30 PM - Emerson Back-to-School Night, August 22, 2023 at 8 AM - First Day of School! September 4, 2023 - Labor Day, [September 5, 2023 at 5 PM - School Board Meeting](https://www.slcschools.org/board-of-education/board-meetings/2023-24-board-meetings)
 - [Board Meetings Request to Speak/Written Public Comments Info.](https://www.slcschools.org/board-of-education/board-meetings/request-to-speak)
 - [You can help keep Emerson open by leaving the Board feedback online.](https://saltlakedistrict.sjc1.qualtrics.com/jfe/form/SV_bm7M6vIXQLQQAHc)
 - [You can help keep Emerson open by emailing the Board.](https://www.slcschools.org/board-of-education)
 - [You can help keep Emerson open by emailing the Superintendent's Office.](https://www.slcschools.org/departments/superintendents-office)
-- **Important Dates**: August 17, 2023 at 4:30 PM - Emerson Back-to-School Night, August 22, 2023 at 8 AM - First Day of School! September 4, 2023 - Labor Day, [September 5, 2023 at 5 PM - School Board Meeting](https://www.slcschools.org/board-of-education/board-meetings/2023-24-board-meetings)
 - [SLTrib: Emerson Elementary Families Deserve More Transparency](https://www.sltrib.com/opinion/commentary/2023/08/11/katie-wagner-emerson-elementary/)
 - [SLTrib: Emerson Elementary was crucial to my formative experiences. It would be a huge mistake to close it.](https://www.sltrib.com/opinion/letters/2023/08/06/letter-emerson-elementary-was/)
 - [August 2, 2023 Precinct 5 Representative Mohamed Baayd at Sugar House Community Council (1:30 to 22:40)](https://www.youtube.com/live/H2ipW_5DW2g?feature=share&t=90)
