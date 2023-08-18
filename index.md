@@ -113,7 +113,7 @@ The potential loss of these four schools would significantly impact the fabric o
 ## Community Input
 
 - [Keep Emerson Open Instagram](https://www.instagram.com/keepemersonopen)
-- **Important Dates**: August 17, 2023 at 4:30 PM - Emerson Back-to-School Night, August 22, 2023 at 8 AM - First Day of School! September 4, 2023 - Labor Day, [September 5, 2023 at 5 PM - School Board Meeting](https://www.slcschools.org/board-of-education/board-meetings/2023-24-board-meetings)
+- **Important Dates**: August 22, 2023 at 8 AM - First Day of School! September 4, 2023 - Labor Day, [September 5, 2023 at 5 PM - School Board Meeting](https://www.slcschools.org/board-of-education/board-meetings/2023-24-board-meetings)
 - [Board Meetings Request to Speak/Written Public Comments Info.](https://www.slcschools.org/board-of-education/board-meetings/request-to-speak)
 - [You can help keep Emerson open by leaving the Board feedback online.](https://saltlakedistrict.sjc1.qualtrics.com/jfe/form/SV_bm7M6vIXQLQQAHc)
 - [You can help keep Emerson open by emailing the Board.](https://www.slcschools.org/board-of-education)
