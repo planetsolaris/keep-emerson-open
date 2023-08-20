@@ -40,7 +40,7 @@ This site aims to provide insights into each of these factors, underscoring thei
 
 Sourced from the [Salt Lake City School District Sustainability Action Plan](https://resources.finalsite.net/images/v1641931356/slcschoolsorg/irjphywgl0dtrb8n8in0/sustainability-resolution-english.pdf), Emerson has 6th lowest utility cost per student, 5th lowest emissions per student, 12th lowest Energy Use Intensity ('miles per gallon' of the school), and 9th lowest water usage compared to all elementary schools in the district.
 
-Emerson has recently invested in upgrades that made the school energy-efficient, with energy-saving lights and an installation of solar panels. These enhancements are projected to further lower the school's energy costs, ensuring a greener and more eco-conscious future.
+Emerson has recently invested in upgrades that contributes to the school's energy-efficiency, with energy-saving lights and an installation of solar panels. These enhancements are projected to further lower the school's energy costs, ensuring a greener and more eco-conscious future.
 
 Beyond its commitment to sustainability, Emerson thrives as a close-knit and proactive community. The dedication of parents, teachers, and supporters knows no bounds, as evidenced by consistently surpassing [fundraising](https://m.facebook.com/photo.php/?fbid=719896109936485) goals. This remarkable achievement not only demonstrates unwavering community support, but also paves the way for enriching educational experiences.
 
@@ -86,7 +86,7 @@ Despite declining enrollment rates cited as a reason for potential closures, Eme
 
 In Central City, a staggering four out of the seven schools find themselves on the list "recommended for further study for potential closure." Among them, Emerson and Hawthorne, situated in close proximity, face an uncertain future. Additionally, Bennion and Wasatch are also part of this list. [Notably, these four schools represent a substantial portion of the city, from lower Avenues to Sugarhouse.](https://resources.finalsite.net/images/v1603487005/slcschoolsorg/wwjqkrnpextfkgzwnlbg/district-boundary-map.pdf)
 
-The potential loss of these four schools would significantly impact the fabric of this area, which can also be challenging to fill in the future. Emerson is a vital cornerstone of our community: it is a phenomenal public elementary school in the neighborhood that just works. The school ground also becomes a community gathering point in the evenings when dog owners bring their dogs to the field, parents with babies and toddlers play in the playground, and students with their caregivers also stop by.
+The loss of these four schools would significantly impact the fabric of this area, which can also be challenging to fill in the future. Emerson is a vital cornerstone of our community: it is a phenomenal public elementary school in the community that just works. The school ground also becomes a community gathering point in the evenings when dog owners bring their dogs to the field, parents with babies and toddlers play in the playground, and students with their caregivers also stop by.
 
 ## Ask the School Board:
 
