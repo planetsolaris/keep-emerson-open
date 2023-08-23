@@ -113,7 +113,7 @@ The loss of these four schools would significantly impact the fabric of this are
 ## Community Input
 
 - [Keep Emerson Open Instagram](https://www.instagram.com/keepemersonopen)
-- **Important Dates**: August 23, 2023 - PTA Information Meeting 6:30, September 4, 2023 - Labor Day, [September 5, 2023 at 5 PM - School Board Meeting](https://www.slcschools.org/board-of-education/board-meetings/2023-24-board-meetings)
+- **Important Dates**: [August 23, 2023 - PTA Information Meeting at 6:30 PM](https://emerson.slcschools.org/calendars#), September 4, 2023 - Labor Day, [September 5, 2023 at 5 PM - School Board Meeting](https://www.slcschools.org/board-of-education/board-meetings/2023-24-board-meetings)
 - [Board Meetings Request to Speak/Written Public Comments Info.](https://www.slcschools.org/board-of-education/board-meetings/request-to-speak)
 - [Emerson Community Email Updates](https://docs.google.com/forms/d/e/1FAIpQLScDFigP-wvRopUnGTgdQKxXOuStwSb5yO22j8BgRqwgVuvrlg/viewform)
 - [Request Emerson Yard Signs](https://docs.google.com/forms/d/e/1FAIpQLScJL91a5q3W95lRggH-4-qZZQ3s_D0HY4XDrXgTYN07SKptqA/viewform)
