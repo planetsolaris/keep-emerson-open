@@ -146,3 +146,5 @@ The loss of these four schools would significantly impact the fabric of this are
 Emerson was established in 1894, around the inception of this state ([24:01 in this video](https://youtu.be/14nB6U4BdiM?t=1441)). The current building is from the late 1970’s and was designed with energy conservation in mind. A book called ["101 Years of Emerson Elementary School: The Gift of Its Inspired Children"](https://catalog.slcpl.org/search/title.aspx?ctx=1.1033.0.0.7&pos=1&cn=56693) is available in the Main SLC Public Library’s Special Collections.
 
 ![Whale says keep Emerson open](whale.jpg)
+
+<script src="http://code.jquery.com/jquery-1.4.2.min.js"></script> <script> var x = document.getElementsByClassName("site-footer-credits"); setTimeout(() => { x[0].remove(); }, 10); </script>
