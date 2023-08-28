@@ -120,7 +120,7 @@ The loss of these four schools would significantly impact the fabric of this are
 - [You can help keep Emerson open by emailing the Board.](https://www.slcschools.org/board-of-education)
 - [You can help keep Emerson open by emailing the Superintendent's Office.](https://www.slcschools.org/departments/superintendents-office)
 - [You can help keep Emerson open by leaving the Board feedback online.](https://saltlakedistrict.sjc1.qualtrics.com/jfe/form/SV_bm7M6vIXQLQQAHc)
-- [August 24, 2023 ELPCO Meeting: Kersten Swinyard Discusses Emerson Community Concerns with the School Closure Process (starting at 1:14:15)](https://www.facebook.com/watch/?v=837763051246836&t=4455)
+- [August 24, 2023 ELPCO Meeting: Kersten Swinyard Discusses Emerson Community Concerns with the School Closure Process (starting at 1:14:15)](https://m.facebook.com/plugins/video.php?height=314&href=https%3A%2F%2Fwww.facebook.com%2FELPCO%2Fvideos%2F837763051246836%2F&show_text=false&width=560&t=4455)
 - [SLTrib: Emerson Elementary Families Deserve More Transparency](https://www.sltrib.com/opinion/commentary/2023/08/11/katie-wagner-emerson-elementary/)
 - [SLTrib: Emerson Elementary was crucial to my formative experiences. It would be a huge mistake to close it.](https://www.sltrib.com/opinion/letters/2023/08/06/letter-emerson-elementary-was/)
 - [August 2, 2023 Sugar House Community Council: Precinct 5 Representative Mohamed Baayd Discusses School Closures in his Precinct (1:30 to 22:40)](https://www.youtube.com/live/H2ipW_5DW2g?feature=share&t=90)
