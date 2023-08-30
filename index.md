@@ -84,7 +84,7 @@ Despite declining enrollment rates cited as a reason for potential closures, Eme
 
 ## Proximity to Other Schools
 
-In [East Central](https://g.co/kgs/xUXFJU)/[Central City](https://g.co/kgs/txQADM), a staggering four out of the seven schools find themselves on the list "recommended for further study for potential closure." Among them, Emerson and Hawthorne, situated in close proximity, face an uncertain future. Additionally, Bennion and Wasatch are also part of this list. [Notably, these four schools represent a substantial portion of the city, from lower Avenues to Sugarhouse.](https://resources.finalsite.net/images/v1603487005/slcschoolsorg/wwjqkrnpextfkgzwnlbg/district-boundary-map.pdf)
+In [Central City](https://g.co/kgs/txQADM)/[East Central](https://g.co/kgs/xUXFJU), a staggering four out of the seven schools find themselves on the list "recommended for further study for potential closure." Among them, Emerson and Hawthorne, situated in close proximity, face an uncertain future. Additionally, Bennion and Wasatch are also part of this list. [Notably, these four schools represent a substantial portion of the city, from lower Avenues to Sugarhouse.](https://resources.finalsite.net/images/v1603487005/slcschoolsorg/wwjqkrnpextfkgzwnlbg/district-boundary-map.pdf)
 
 The loss of these four schools would significantly impact the fabric of this area, which can also be challenging to fill in the future. Emerson is a vital cornerstone of our community: it is a phenomenal public elementary school in the district that just works. The school ground also becomes a community gathering point in the evenings when dog owners bring their dogs to the field, parents with babies and toddlers play in the playground, and students with their caregivers also stop by.
 
@@ -135,7 +135,7 @@ The loss of these four schools would significantly impact the fabric of this are
 - [SLTrib: All 7 Proposed SLC Schools Will Be Studied for Closure](https://www.sltrib.com/news/education/2023/08/01/tonight-salt-lake-citys-school/)
 - [KUTV: Parents Rally for Their Kids' Schools](https://kutv.com/news/crisis-in-the-classroom/parents-rally-to-convince-district-to-keep-salt-lake-city-schools-open-elementary)
 - [SLTrib: What put these 7 SLC Schools on Radar for Closure?](https://www.sltrib.com/news/education/2023/08/01/why-are-these-7-salt-lake-city/)
-- [SLTrib: Is SLC Schools Proposed Closure List an Equity Issue Veiled as Fiscal Pragmatism?](https://www.sltrib.com/opinion/commentary/2023/07/28/marina-gomberg-wonders-if-proposed/)
+- [SLTrib: Is SLC Schools Proposed Closure an Equity Issue Veiled as Fiscal Pragmatism?](https://www.sltrib.com/opinion/commentary/2023/07/28/marina-gomberg-wonders-if-proposed/)
 - [SLTrib: Keep Emerson Elementary Open](https://www.sltrib.com/opinion/commentary/2023/07/21/alyssa-campos-keep-emerson/)
 - [SLTrib: Invest in Public Education](https://www.sltrib.com/opinion/letters/2023/07/20/letter-potential-closure-salt-lake/)
 - [KUTV: Shock, School with High Enrollment on Closure List](https://kutv.com/news/crisis-in-the-classroom/parents-shocked-by-salt-lake-schools-listed-for-possible-closure-despite-high-enrollment-emerson-elementary-large-student-body-programs-public-comment)
