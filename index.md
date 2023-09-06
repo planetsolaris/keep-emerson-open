@@ -142,7 +142,7 @@ The loss of these four schools would significantly impact the fabric of this are
 - [KUTV: Shock, School with High Enrollment on Closure List](https://kutv.com/news/crisis-in-the-classroom/parents-shocked-by-salt-lake-schools-listed-for-possible-closure-despite-high-enrollment-emerson-elementary-large-student-body-programs-public-comment)
 - [KSLTV: Salt Lake Board Hears Recommendation for School Closures](https://ksltv.com/566708/right-sized-schools-salt-lake-board-hears-recommendations-for-school-closures/)
 - [KSLTV: SLCSD to Release List of Schools Facing Closure](https://ksltv.com/566611/salt-lake-school-district-to-release-list-of-schools-facing-closure/)
-- [April 2023 Emerson SCC Meeting Notes](https://resources.finalsite.net/images/v1689197476/slcschoolsorg/lgzj2vrlba27zbobmgam/EmersonCommunityCouncilMeeting04-12-23.pdf)
+- [April 2023 Emerson SCC Meeting Notes](https://resources.finalsite.net/images/v1683554636/slcschoolsorg/t4ivga7dhu4iw5ht0gkv/EmersonSCCMinutes41223.pdf)
 
 ## Emerson Elementary History
 
