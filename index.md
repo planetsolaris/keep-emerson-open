@@ -86,7 +86,7 @@ Despite declining enrollment rates cited as a reason for potential closures, Eme
 
 In [Central City](https://g.co/kgs/txQADM)/[East Central](https://g.co/kgs/xUXFJU), a staggering four out of the seven schools find themselves on the list "recommended for further study for potential closure." Among them, Emerson and Hawthorne, situated in close proximity, face an uncertain future. Additionally, Bennion and Wasatch are also part of this list. [Notably, these four schools represent a substantial portion of the city, from lower Avenues to Sugarhouse.](https://resources.finalsite.net/images/v1603487005/slcschoolsorg/wwjqkrnpextfkgzwnlbg/district-boundary-map.pdf)
 
-The loss of these four schools would significantly impact the fabric of this area, which can also be challenging to fill in the future. Emerson is a vital cornerstone of our community: it is a phenomenal public elementary school in the district that just works. The school ground also becomes a community gathering point in the evenings when dog owners bring their dogs to the field, parents with babies and toddlers play in the playground, and students with their caregivers also stop by.
+The loss of these four schools would significantly impact the fabric of this area, which can also be challenging to fill in the future. Emerson is a vital cornerstone of our community: it is a phenomenal public elementary school in the district that just works. The school ground also becomes a community gathering point/green space in the evenings when dog owners bring their dogs to the field, parents with babies and toddlers play in the playground, and students with their caregivers also stop by.
 
 ## Ask the School Board:
 
