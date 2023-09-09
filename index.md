@@ -6,7 +6,7 @@ Hello, we are members of the Emerson Elementary community.
 
 [Emerson](https://emerson.slcschools.org) is a public elementary school in Salt Lake City, Utah that is currently on a list for [potential closure](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study) despite the fact that it is a [nationally recognized school](https://nationalblueribbonschools.ed.gov/awardwinners/winning/21ut102pu_emerson_elementary_school.html).
 
-Our mission is to create a hub for gathering and sharing information about Emerson with a passionate determination to ensure its continued operation.#.
+Our mission is to create a hub for gathering and sharing information about Emerson with a passionate determination to ensure its continued operation.
 
 ## Per the [school district's policy](https://resources.finalsite.net/images/v1644869018/slcschoolsorg/da6w2cajvlh3tpfsacb0/g-5-policy-english.pdf), "all applicable factors will be considered" regarding school closures, including but not limited to the following:
 
