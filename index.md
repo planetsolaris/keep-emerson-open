@@ -6,6 +6,8 @@ Hello, we are members of the Emerson Elementary community.
 
 Our mission is to create a hub for gathering and sharing information about Emerson with a passionate determination to ensure its continued operation.
 
+[**Este es el link al Google Translate de español.**](https://keepemersonopen-info.translate.goog/?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en&_x_tr_pto=wapp)
+
 ## Per the [school district's policy](https://resources.finalsite.net/images/v1644869018/slcschoolsorg/da6w2cajvlh3tpfsacb0/g-5-policy-english.pdf), "all applicable factors will be considered" regarding school closures, including but not limited to the following:
 
 - Enrollment data
