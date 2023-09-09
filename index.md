@@ -1,12 +1,12 @@
 # Keep Emerson Elementary Open 
 
+[**Este es el link al Google Translate de español.**](https://keepemersonopen-info.translate.goog/?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en&_x_tr_pto=wapp)
+
 Hello, we are members of the Emerson Elementary community.
 
 [Emerson](https://emerson.slcschools.org) is a public elementary school in Salt Lake City, Utah that is currently on a list for [potential closure](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study) despite the fact that it is a [nationally recognized school](https://nationalblueribbonschools.ed.gov/awardwinners/winning/21ut102pu_emerson_elementary_school.html).
 
-Our mission is to create a hub for gathering and sharing information about Emerson with a passionate determination to ensure its continued operation.
-
-[**Este es el link al Google Translate de español.**](https://keepemersonopen-info.translate.goog/?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en&_x_tr_pto=wapp)
+Our mission is to create a hub for gathering and sharing information about Emerson with a passionate determination to ensure its continued operation.#.
 
 ## Per the [school district's policy](https://resources.finalsite.net/images/v1644869018/slcschoolsorg/da6w2cajvlh3tpfsacb0/g-5-policy-english.pdf), "all applicable factors will be considered" regarding school closures, including but not limited to the following:
 
