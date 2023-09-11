@@ -92,19 +92,19 @@ The loss of these four schools would significantly impact the fabric of this are
 
 ## Summary of Concerns
 
-1. **Safety**: If Emerson closes, students will have to cross dangerous streets like 700 East or 1300 East to get to school. Most students at Emerson walk or bike to school. There are no other nearby schools where Emerson students can safely walk or bike.
+1. **Safety**: If Emerson closes, students will have to cross dangerous streets like 700 East or 1300 East to get to school. There are no other nearby schools where Emerson students can safely walk or bike to and from. Newly constructed raised crosswalks on 1100 East provide safer access to Emerson.
 
-2.	**Vulnerable students**: Emerson is home to a behavioral hub and special ed hub. Students in these programs depend on the steady, supportive environment at Emerson. It might take years to establish the programs at another school, which is unfair to these vulnerable students.  
+2.	**Vulnerable Students**: Emerson is home to a behavioral hub and special ed hub. Students in these programs depend on the steady, supportive environment at Emerson. It might take years to establish the programs at another school, which is unfair to these vulnerable students.  
 
-3. **Learning environment**: Despite being an older building, Emerson is energy efficient, safe, and provides an effective learning environment for students. The building is sufficient to meet the district's target of 400-500 neighborhood kids and house a special program.
+3. **Learning Environment**: Despite being an older building, Emerson is energy efficient, safe, and provides an effective learning environment for students. The building is able to meet the district's target of 400-500 neighborhood kids and house a special program.
 
-4. **Exceptional education**: Emerson is a nationally awarded Blue Ribbon school. The [2022 state audit](https://lag.utleg.gov/olag-doc/2022-16_RPT.pdf) that recommended closing schools also recommended the district use its most effective schools as models for other schools. Emerson is a school to replicate, not a school to close.
+4. **Exceptional Education**: Emerson is a nationally awarded Blue Ribbon school. The [2022 state audit](https://lag.utleg.gov/olag-doc/2022-16_RPT.pdf) that recommended closing schools also recommended that the district use its high performing teachers and schools as models for other schools. Emerson is a school to replicate, not a school to close.
 
-5. **Human impact**: [The district only focused on building age when deciding which schools to close, ignoring school performance, student achievement, equity issues, or community impact.](https://resources.finalsite.net/images/v1689889156/slcschoolsorg/msnrax3oquvts0jx4b0i/Ranking.pdf) Before closing any schools, they should evaluate the human impact closures will have on students and families.
+5. **Human Impact**: [The district decided which schools they will study for possible closure based on building age without considering factors like school performance, student achievement, equity, and community impact.](https://resources.finalsite.net/images/v1689889156/slcschoolsorg/msnrax3oquvts0jx4b0i/Ranking.pdf) Before closing any schools, the district should evaluate and report on how closures will affect students, families, and communities.
 
 6. **Community**: The district's current recommendations will hollow out the heart of the city which will affect who moves into our Central City neighborhoods for generations. The district should keep Emerson and another East Central school open so that families will continue to live in the area and to attract new families to the area.
 
-7. **Scope of change**: Closing 7 schools or 25% of the district's elementary schools is too much change at once. The district cannot ensure a safe and smooth transition for that many kids, especially our most vulnerable students. The district should close fewer schools now and develop a long-term plan for future closures. 
+7. **Scope of Change**: Closing 7 schools or 25% of the district's elementary schools is too much change at once. The district cannot ensure a safe and smooth transition for that many kids, especially our most vulnerable students. The district should close fewer schools now and develop a long-term plan for future closures. 
 
 ## Community Input
 
