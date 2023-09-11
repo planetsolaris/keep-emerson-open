@@ -26,7 +26,7 @@ Our mission is to create a hub for gathering and sharing information about Emers
 - Financial implications
 - Educational programs
 
-This site aims to provide insights into each of these factors, underscoring their significance in the preservation of Emerson Elementary. This site also highlights our human connection to the school with school performance and some demographics information along with our community input and feedback.
+This site aims to provide insights into each of these factors, underscoring their significance in the preservation of Emerson Elementary. This site also highlights our human connection to the school with some demographics and school performance information along with our community input and feedback.
 
 ## Accessibility and Safety
 
@@ -144,6 +144,8 @@ The loss of these four schools would significantly impact the fabric of this are
 - [KSLTV: Salt Lake Board Hears Recommendation for School Closures](https://ksltv.com/566708/right-sized-schools-salt-lake-board-hears-recommendations-for-school-closures/)
 - [KSLTV: SLCSD to Release List of Schools Facing Closure](https://ksltv.com/566611/salt-lake-school-district-to-release-list-of-schools-facing-closure/)
 - [April 2023 Emerson SCC Meeting Notes](https://resources.finalsite.net/images/v1683554636/slcschoolsorg/t4ivga7dhu4iw5ht0gkv/EmersonSCCMinutes41223.pdf)
+
+2021-2022 [School State Profile](https://utahschoolgrades.schools.utah.gov/School/Profile/?SchoolID=1116&DistrictID=1107&SchoolNbr=136&SchoolLevel=K8&IsSplitSchool=0&schoolyearendyear=2022) | [Grade](https://utahschoolgrades.schools.utah.gov/School/OverAllPerformance?SchoolID=1116&DistrictID=1107&SchoolNbr=136&SchoolLevel=K8&IsSplitSchool=0&schoolyearendyear=2022) | [District State Profile](https://utahschoolgrades.schools.utah.gov/District/Profile?DistrictID=1107&schoolyearendyear=2022)
 
 ## Emerson Elementary History
 
