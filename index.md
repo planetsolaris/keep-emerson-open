@@ -92,7 +92,7 @@ The loss of these four schools would significantly impact the fabric of this are
 
 ## Summary of Concerns
 
-1. **Safety**: If Emerson closes, students will have to cross dangerous streets like 700 East or 1300 East to get to school. There are no other nearby public elementary schools where Emerson students can safely walk or bike to and from. Newly constructed raised crosswalks on 1100 East provide safer access to Emerson.
+1. **Safety**: If Emerson closes, students will have to cross dangerous streets like 700 East or 1300 East to get to school. There is no other public elementary schools nearby where Emerson students can safely walk or bike to and from. Newly constructed raised crosswalks on 1100 East provide safer access to Emerson.
 
 2.	**Vulnerable Students**: Emerson is home to a behavioral hub and special ed hub. Students in these programs depend on the steady, supportive environment at Emerson. It might take years to establish the programs at another school, which is unfair to these vulnerable students.  
 
