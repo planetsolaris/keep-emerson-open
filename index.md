@@ -121,6 +121,7 @@ The loss of these four schools would significantly impact the fabric of this are
 - [Board Meetings Request to Speak/Written Public Comments Info.](https://www.slcschools.org/board-of-education/board-meetings/request-to-speak)
 - Email [the Board](https://www.slcschools.org/board-of-education), [Superintendent’s Office](https://www.slcschools.org/departments/superintendents-office), or leave them [feedback](https://saltlakedistrict.sjc1.qualtrics.com/jfe/form/SV_bm7M6vIXQLQQAHc) online.
 - [**SLCSD Community Feedback**](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study/community-feedback)
+- [September 12, 2023 Population and Boundary Study Information Meeting (Comments and Questions start at 35:15)](https://m.youtube.com/watch?v=nu6g9bEIzjw)
 - [September 5, 2023 Board Meeting Comments and Boundary & Planning Study Update (starting at 4:03)](https://www.youtube.com/live/7-Cls0KWLTQ?si=92kPFVy6Rj95oJJy&t=243)
 - [KUER: Parents have Questions, Frustrations about the 7 SLC Schools up for Closure](https://www.kuer.org/education/2023-08-28/parents-have-questions-frustrations-about-the-7-salt-lake-city-schools-up-for-closure?_amp=true)
 - [August 24, 2023 ELPCO Meeting: Kersten Swinyard Discusses Emerson Community Concerns with the School Closure Process (starting at 1:14:15)](https://m.facebook.com/plugins/video.php?height=314&href=https%3A%2F%2Fwww.facebook.com%2FELPCO%2Fvideos%2F837763051246836%2F&show_text=false&width=560&t=4455)
