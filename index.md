@@ -111,8 +111,7 @@ The loss of these four schools would significantly impact the fabric of this are
 - [Keep Emerson Open Instagram](https://www.instagram.com/keepemersonopen)
 - [Emerson Community Email Updates Request](https://docs.google.com/forms/d/e/1FAIpQLScDFigP-wvRopUnGTgdQKxXOuStwSb5yO22j8BgRqwgVuvrlg/viewform)
 - [Emerson Yard Signs Request](https://docs.google.com/forms/d/e/1FAIpQLScJL91a5q3W95lRggH-4-qZZQ3s_D0HY4XDrXgTYN07SKptqA/viewform)
-- **Important Dates:**\
-
+- **Important Dates:**
     **SCC Meeting:** [September 13, 5:30 p.m.](https://emerson.slcschools.org/calendars#)
 
     **School Board Meetings:** [September 19, October 3 and 17, November 7 and 20, December 5, 5 p.m.](https://www.slcschools.org/board-of-education/board-meetings/2023-24-board-meetings)
