@@ -119,6 +119,7 @@ The loss of these four schools would significantly impact the fabric of this are
 - [Board Meetings Request to Speak/Written Public Comments Info.](https://www.slcschools.org/board-of-education/board-meetings/request-to-speak)
 - Email [the Board](https://www.slcschools.org/board-of-education), [Superintendent’s Office](https://www.slcschools.org/departments/superintendents-office), or leave them [feedback](https://saltlakedistrict.sjc1.qualtrics.com/jfe/form/SV_bm7M6vIXQLQQAHc) online.
 - [**SLCSD Community Feedback**](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study/community-feedback)
+- [SLTrib: Andy Larsen: SLC’s school closure effort is one big mess. Here’s how the district could do better.](https://www.sltrib.com/news/2023/09/15/andy-larsen-salt-lake-citys-school/)
 - [September 12, 2023 Boundaries & Planning Area Information Meeting (Comments and Questions start at 35:15)](https://www.youtube.com/live/nu6g9bEIzjw?si=qN0K7IUyhgOY-N0A&t=2115)
 - [September 5, 2023 Board Meeting Comments and Boundary & Planning Study Update (starting at 4:03)](https://www.youtube.com/live/7-Cls0KWLTQ?si=92kPFVy6Rj95oJJy&t=243)
 - [KUER: Parents have Questions, Frustrations about the 7 SLC Schools up for Closure](https://www.kuer.org/education/2023-08-28/parents-have-questions-frustrations-about-the-7-salt-lake-city-schools-up-for-closure?_amp=true)
