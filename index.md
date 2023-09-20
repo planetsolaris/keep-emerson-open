@@ -124,6 +124,7 @@ The loss of these four schools would significantly impact the fabric of this are
 - [September 5, 2023 Board Meeting Comments and Boundary & Planning Study Update (starting at 4:03)](https://www.youtube.com/live/7-Cls0KWLTQ?si=92kPFVy6Rj95oJJy&t=243)
 - [KUER: Parents have Questions, Frustrations about the 7 SLC Schools up for Closure](https://www.kuer.org/education/2023-08-28/parents-have-questions-frustrations-about-the-7-salt-lake-city-schools-up-for-closure?_amp=true)
 - [August 24, 2023 ELPCO Meeting: Kersten Swinyard Discusses Emerson Community Concerns with the School Closure Process (starting at 1:14:15)](https://m.facebook.com/plugins/video.php?height=314&href=https%3A%2F%2Fwww.facebook.com%2FELPCO%2Fvideos%2F837763051246836%2F&show_text=false&width=560&t=4455)
+- [August 15, 2023 Written Public Comments](https://resources.finalsite.net/images/v1693520097/slcschoolsorg/htasgeemzb0i4g78iogw/attachmenttotheminutesWrittenPublicComment.pdf)
 - [SLTrib: Emerson Elementary Families Deserve More Transparency](https://www.sltrib.com/opinion/commentary/2023/08/11/katie-wagner-emerson-elementary/)
 - [SLTrib: Emerson Elementary was crucial to my formative experiences. It would be a huge mistake to close it.](https://www.sltrib.com/opinion/letters/2023/08/06/letter-emerson-elementary-was/)
 - [August 2, 2023 Sugar House Community Council: Precinct 5 Representative Mohamed Baayd Discusses School Closures in his Precinct (1:30 to 22:40)](https://www.youtube.com/live/H2ipW_5DW2g?feature=share&t=90)
