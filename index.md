@@ -112,7 +112,7 @@ The loss of these four schools would significantly impact the fabric of this are
 - [Emerson Community Email Updates Request](https://docs.google.com/forms/d/e/1FAIpQLScDFigP-wvRopUnGTgdQKxXOuStwSb5yO22j8BgRqwgVuvrlg/viewform)
 - [Emerson Yard Signs Request](https://docs.google.com/forms/d/e/1FAIpQLScJL91a5q3W95lRggH-4-qZZQ3s_D0HY4XDrXgTYN07SKptqA/viewform)
 - **Important Dates:**\
-    **School Board Meetings:** [September 19, October 3 and 17, November 7 and 20, December 5, 5 p.m.](https://www.slcschools.org/board-of-education/board-meetings/2023-24-board-meetings)
+    **School Board Meetings:** [October 3 and 17, November 7 and 20, December 5, 5 p.m.](https://www.slcschools.org/board-of-education/board-meetings/2023-24-board-meetings)
 
     **Population and Boundary Study Information Meetings:** [October 7, 9-11 a.m. at Glendale Middle School, October 18, 7-9 p.m. at Northwest Middle School, October 21, 9-11 a.m. at Franklin Elementary (SPANISH), Wednesday, October 25, 7-9 p.m. at Hillside Middle School](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study#fs-panel-81381)
 
