@@ -26,7 +26,7 @@ Our mission is to create a hub for gathering and sharing information about Emers
 - Financial implications
 - Educational programs
 
-This site aims to provide insights into each of these factors, underscoring their significance in the preservation of Emerson Elementary. This site also highlights our human connection to the school with some demographics and school performance information along with our community input and feedback. Emerson is more than just a building, it is our students, teachers, admins/staff.
+This site aims to provide insights into each of these factors, underscoring their significance in the preservation of Emerson Elementary. This site also highlights our human connection to the school with some demographics and school performance information along with our community input and feedback. <u>**Emerson is more than just a building, it is our students, teachers, admins/staff.**</u>
 
 ## Accessibility and Safety
 
