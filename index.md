@@ -101,7 +101,7 @@ The loss of these four schools would significantly impact the fabric of this are
 
 4. **Exceptional Education**: Emerson is a nationally awarded Blue Ribbon school. The [2022 state audit](https://lag.utleg.gov/olag-doc/2022-16_RPT.pdf) that recommended closing schools also recommended that the district use its high performing teachers and schools as models for other schools. Emerson is a school to replicate, not a school to close.
 
-5. **Human Impact**: [The district decided which schools they will study for possible closure based on building age without considering factors like school performance, student achievement, equity, and community impact.](https://resources.finalsite.net/images/v1689889156/slcschoolsorg/msnrax3oquvts0jx4b0i/Ranking.pdf) Before closing any schools, the district should evaluate and report on how closures will affect students, families, and communities.
+5. **Human Impact**: [The district decided which schools they will study for possible closure based on building age without considering factors like school performance, student achievement, equity, and community impact.](https://resources.finalsite.net/images/v1689889156/slcschoolsorg/msnrax3oquvts0jx4b0i/Ranking.pdf) Before closing any schools, the district should evaluate and report on how closures will affect students, families, teachers, and communities.
 
 6. **Community**: The district's current recommendations will hollow out the heart of the city which will affect who moves into our Central City neighborhoods for generations. The district should keep Emerson and another East Central school open so that families will continue to live in the area and to attract new families to the area.
 
