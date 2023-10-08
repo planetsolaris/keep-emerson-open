@@ -116,7 +116,7 @@ The loss of these four schools would significantly impact the fabric of this are
 - **Important Dates:**\
     **School Board Meetings:** [October 17, November 7 and 20, December 5 **(PUBLIC HEARING)**, 5 p.m.](https://www.slcschools.org/board-of-education/board-meetings/2023-24-board-meetings)
 
-    **Population and Boundary Study Information Meetings:** [October 18, 7-9 p.m. at Northwest Middle School, October 21, 9-11 a.m. at Franklin Elementary (SPANISH), October 25, 7-9 p.m. at Hillside Middle School](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study#fs-panel-81381)
+    **Population and Boundary Study Information Meetings:** [October 18, 7-9 p.m. at Northwest Middle School, October 21, 9-11 a.m. at Franklin Elementary (SPANISH), October 25, 7-9 p.m. at Hillside Middle School](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study#fs-panel-81383)
 
     **Emerson Community Meeting w/ SLCSD:** October 24, 5:30 p.m. at Emerson
 
