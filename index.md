@@ -113,8 +113,7 @@ The loss of these four schools would significantly impact the fabric of this are
 - [Save Emerson Change.org Petition](https://www.change.org/p/save-emerson-elementary-school-a-vital-community-hub?fbclid=PAAaaWKKzq01zSiSO7AOCnD5Sohyo63vUtZDMXZqRVRCQQ1iJbDj8n2NbMpSA_aem_AfhqJxnn51grPHSkGPy-pAkCyn4eSHzLFauGjjdozzclysM79u0YQwq70PONMMPZ4Hw)
 - [Emerson Community Email Updates Request](https://docs.google.com/forms/d/e/1FAIpQLScDFigP-wvRopUnGTgdQKxXOuStwSb5yO22j8BgRqwgVuvrlg/viewform)
 - [Emerson Yard Signs Request](https://docs.google.com/forms/d/e/1FAIpQLScJL91a5q3W95lRggH-4-qZZQ3s_D0HY4XDrXgTYN07SKptqA/viewform)
-- **Important Dates:**
-
+- **Important Dates:**\
     **Population and Boundary Study Information Meetings:** [October 18, 7-9 p.m. at Northwest Middle School, October 21, 9-11 a.m. at Franklin Elementary (SPANISH), October 25, 7-9 p.m. at Hillside Middle School](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study#fs-panel-81383)
 
     **Emerson Community Meeting w/ SLCSD:** October 24, 5:30 p.m. at Emerson
