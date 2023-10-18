@@ -114,11 +114,12 @@ The loss of these four schools would significantly impact the fabric of this are
 - [Emerson Community Email Updates Request](https://docs.google.com/forms/d/e/1FAIpQLScDFigP-wvRopUnGTgdQKxXOuStwSb5yO22j8BgRqwgVuvrlg/viewform)
 - [Emerson Yard Signs Request](https://docs.google.com/forms/d/e/1FAIpQLScJL91a5q3W95lRggH-4-qZZQ3s_D0HY4XDrXgTYN07SKptqA/viewform)
 - **Important Dates:**\
-    **School Board Meetings:** [October 17, November 7 and 20, December 5 **(PUBLIC HEARING)**, 5:30 p.m.](https://www.slcschools.org/board-of-education/board-meetings/2023-24-board-meetings)
 
     **Population and Boundary Study Information Meetings:** [October 18, 7-9 p.m. at Northwest Middle School, October 21, 9-11 a.m. at Franklin Elementary (SPANISH), October 25, 7-9 p.m. at Hillside Middle School](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study#fs-panel-81383)
 
     **Emerson Community Meeting w/ SLCSD:** October 24, 5:30 p.m. at Emerson
+
+    **School Board Meetings:** [November 7 and 20, December 5 **(PUBLIC HEARING)**, 5:30 p.m.](https://www.slcschools.org/board-of-education/board-meetings/2023-24-board-meetings)
 
 - [Board Meetings Request to Speak/Written Public Comments Info.](https://www.slcschools.org/board-of-education/board-meetings/request-to-speak)
 - Email [the Board](https://www.slcschools.org/board-of-education), [Superintendent’s Office](https://www.slcschools.org/departments/superintendents-office), or leave them [feedback](https://saltlakedistrict.sjc1.qualtrics.com/jfe/form/SV_bm7M6vIXQLQQAHc) online.
