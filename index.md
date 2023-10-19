@@ -8,7 +8,7 @@ Hello, we are members of the Emerson Elementary community.
 
 Our mission is to create a hub for gathering and sharing information about Emerson with a passionate determination to ensure its continued operation.
 
-## Per the [school district's policy](https://resources.finalsite.net/images/v1644869018/slcschoolsorg/da6w2cajvlh3tpfsacb0/g-5-policy-english.pdf), "all applicable factors will be considered" regarding school closures, including but [not limited to the following](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study/district-commitments):
+## Per the [school district's policy](https://resources.finalsite.net/images/v1644869018/slcschoolsorg/da6w2cajvlh3tpfsacb0/g-5-policy-english.pdf), "all applicable factors will be considered" regarding school closures, including but [not limited to the following](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study#fs-panel-81390):
 
 - Enrollment data
 - Facility capacity and design
@@ -26,7 +26,7 @@ Our mission is to create a hub for gathering and sharing information about Emers
 - Financial implications
 - Educational programs
 
-This site aims to provide insights into each of these factors, underscoring their significance in the preservation of Emerson Elementary. This site also highlights our human connection to the school with some demographics and school performance information along with our community input and feedback. **<u>Emerson is more than just a building, it is our students, teachers, admins/staff.</u>**
+This site aims to provide insights into each of these factors, underscoring their significance in the preservation of Emerson Elementary. This site also highlights our human connection to the school with some demographics and school performance information along with our community input and feedback. **<u>Emerson is more than just a building, it is our students, teachers, admins/staff, and community.</u>**
 
 ## Accessibility and Safety
 
@@ -91,6 +91,8 @@ In [Central City](https://g.co/kgs/txQADM)/[East Central](https://g.co/kgs/xUXFJ
 
 The loss of these four schools would significantly impact the fabric of this area, which can also be challenging to fill in the future. Emerson is a vital cornerstone of our community: it is a phenomenal public elementary school in the district that just works. The school ground also becomes a community gathering point/green space in the evenings when dog owners bring their dogs to the field, parents with babies and toddlers play in the playground, and students with their caregivers also stop by.
 
+Emerson is in the center of University of Utah, Westminster, and SLCC. To promote lifelong learning in SLCSD, Emerson should be kept open and more collaboration with the nearby universities should be promoted.
+
 ## Summary of Concerns
 
 1. **Safety**: If Emerson closes, students will have to cross dangerous streets like 700 East or 1300 East to get to school. There is no other public elementary school nearby where Emerson students can safely walk or bike to and from. Newly constructed raised crosswalks on 1100 East provide safer access to Emerson.
@@ -114,7 +116,7 @@ The loss of these four schools would significantly impact the fabric of this are
 - [Emerson Community Email Updates Request](https://docs.google.com/forms/d/e/1FAIpQLScDFigP-wvRopUnGTgdQKxXOuStwSb5yO22j8BgRqwgVuvrlg/viewform)
 - [Emerson Yard Signs Request](https://docs.google.com/forms/d/e/1FAIpQLScJL91a5q3W95lRggH-4-qZZQ3s_D0HY4XDrXgTYN07SKptqA/viewform)
 - **Important Dates:**\
-    **Population and Boundary Study Information Meetings:** [October 18, 7-9 p.m. at Northwest Middle School, October 21, 9-11 a.m. at Franklin Elementary (SPANISH), October 25, 7-9 p.m. at Hillside Middle School](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study#fs-panel-81383)
+    **Population and Boundary Study Information Meetings:** [October 21, 9-11 a.m. at Franklin Elementary (SPANISH), October 25, 7-9 p.m. at Hillside Middle School](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study#fs-panel-81385)
 
     **Emerson Community Meeting w/ SLCSD:** October 24, 5:30 p.m. at Emerson
 
