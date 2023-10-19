@@ -118,13 +118,14 @@ Emerson is in the center of University of Utah, Westminster, and SLCC. To promot
 - **Important Dates:**\
     **Population and Boundary Study Information Meetings:** [October 21, 9-11 a.m. at Franklin Elementary (SPANISH), October 25, 7-9 p.m. at Hillside Middle School](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study#fs-panel-81385)
 
-    **Emerson Community Meeting w/ SLCSD:** October 24, 5:30 p.m. at Emerson
+    **Emerson Community Meeting w/ SLCSD:** October 24, 5:30 p.m. at Emerson (Tailgate at McClelland Circle, 4:30-5:30 p.m.)
 
     **School Board Meetings:** [November 7 and 20, December 5 **(PUBLIC HEARING)**, 5:30 p.m.](https://www.slcschools.org/board-of-education/board-meetings/2023-24-board-meetings)
 
 - [Board Meetings Request to Speak/Written Public Comments Info.](https://www.slcschools.org/board-of-education/board-meetings/request-to-speak)
 - Email [the Board](https://www.slcschools.org/board-of-education), [Superintendent’s Office](https://www.slcschools.org/departments/superintendents-office), or leave them [feedback](https://saltlakedistrict.sjc1.qualtrics.com/jfe/form/SV_bm7M6vIXQLQQAHc) online.
 - [**SLCSD Community Feedback**](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study/community-feedback)
+- [October 18, 2023 Boundaries & Planning Information Meeting (Comments and Questions start at 35:35)](https://www.youtube.com/live/1Ch0fDil1Pc?si=-RDDhIITrNljMw0H&t=2135)
 - [October 7, 2023 Boundaries & Planning Information Meeting (Comments and Questions start at 30:49)](https://www.youtube.com/live/1HFQruhKNkY?feature=share&t=1849)
 - [SLTrib: School Closures and Runaway Costs: SLCSD’s Missteps in Plain View](https://www.sltrib.com/opinion/letters/2023/09/21/letter-school-closures-runaway/)
 - [SLTrib: Andy Larsen: SLC’s school closure effort is one big mess. Here’s how the district could do better.](https://www.sltrib.com/news/2023/09/15/andy-larsen-salt-lake-citys-school/)
