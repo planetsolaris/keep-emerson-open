@@ -55,37 +55,7 @@ Emerson parents volunteer at the school every day. Their active involvement not 
 
 Emerson continues to serve a [significant number of students from its local neighborhood](https://resources.finalsite.net/images/v1674672795/slcschoolsorg/sggt8uoni0hckkbdgvte/FallEnrollment2022.pdf). As per the [district's definition](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study#fs-panel-80603) of “right-sized elementary school,” Emerson maintains a ratio of about three teachers per grade and offers full-day kindergarten classes. In Utah, parents have the choice of [open enrollment](https://le.utah.gov/xcode/Title53G/Chapter6/53G-6-S402.html) and many choose Emerson for its commitment to excellence.
 
-Despite declining enrollment rates cited as a reason for potential closures, Emerson operates at 85% student capacity, marking the second-highest enrollment rate within the Salt Lake City School District. The table sourced from the [State Board of Education](https://www.schools.utah.gov/data/reports?mid=1424&tid=4) emphasizes in bold the enrollment rates for Emerson as well as the other schools on the list for potential closure.
-
-| School Name             | % of Capacity |
-|-------------------------|--------------:|
-| Mountain View School    |           86% |
-| **Emerson School**      |           **85%** |
-| Highland Park School    |           82% |
-| Dilworth School         |           76% |
-| Bonneville School       |           75% |
-| Uintah School           |           75% |
-| Whittier School         |           69% |
-| **Hawthorne School**    |           **66%** |
-| Beacon Heights School   |           63% |
-| **Mary W. Jackson School** |        **63%** |
-| Edison School           |           59% |
-| Meadowlark School       |           57% |
-| **Wasatch School**      |           **56%** |
-| Liberty School          |           55% |
-| Backman School          |           54% |
-| Escalante School        |           53% |
-| North Star School       |           53% |
-| Ensign School           |           52% |
-| Indian Hills School     |           50% |
-| Nibley Park School      |           46% |
-| Franklin School         |           45% |
-| Rose Park School        |           45% |
-| **Newman School**       |           **42%** |
-| Washington School       |           36% |
-| **Riley School**        |           **35%** |
-| Parkview School         |           34% |
-| **M. Lynn Bennion School** |         **26%** |
+Despite declining district-wide enrollment rates cited as a reason for potential closures, Emerson operates at 84% student capacity, marking the third-highest enrollment rate within the Salt Lake City School District. 
 
 ## Proximity to Other Schools
 
