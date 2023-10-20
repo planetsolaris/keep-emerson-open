@@ -65,7 +65,7 @@ In [Central City](https://g.co/kgs/txQADM)/[East Central](https://g.co/kgs/xUXFJ
 
 The loss of these four schools would significantly impact the fabric of this area, which can also be challenging to fill in the future. Emerson is a vital cornerstone of our community: it is a phenomenal public elementary school in the district that just works. The school ground also becomes a community gathering point/green space in the evenings when dog owners bring their dogs to the field, parents with babies and toddlers play in the playground, and students with their caregivers also stop by.
 
-Emerson is in the center of SLCC, University of Utah, Westminster. To promote lifelong learning in the district and the state, Emerson should be kept open and more collaboration with the nearby college/universities should be promoted in elementary schools.
+Emerson is in the center of SLCC, University of Utah, and Westminster University. To promote lifelong learning in the district and the state, Emerson should be kept open and more collaboration with the nearby college/universities should be promoted in elementary schools.
 
 ## Summary of Concerns
 
