@@ -53,7 +53,7 @@ Emerson parents volunteer at the school every day. Their active involvement not 
 
 [**2023-2024 Enrollment Report**](https://app.powerbi.com/view?r=eyJrIjoiOGY4ODM0NzgtMWM5Yy00ZGEyLTlmMzUtMWUwNmM4YzBjNmVlIiwidCI6IjViNzg1OTg4LWQxNTktNDI1Ni05OWM2LTY0NzRhMDY5NmYxMyIsImMiOjZ9&pageName=ReportSection19df96761d8ed5812151)
 
-Emerson continues to serve a [significant number of students from its local neighborhood](https://resources.finalsite.net/images/v1674672795/slcschoolsorg/sggt8uoni0hckkbdgvte/FallEnrollment2022.pdf). Despite declining district-wide enrollment rates cited as a reason for potential closures, Emerson operates at 84% student capacity, marking the third-highest enrollment rate within the Salt Lake City School District.
+Emerson continues to serve a significant number of students from its local neighborhood. Despite declining district-wide enrollment rates cited as a reason for potential closures, Emerson operates at 84% student capacity, marking the third-highest enrollment rate within the Salt Lake City School District.
 
 In Utah, parents have the choice of [open enrollment](https://le.utah.gov/xcode/Title53G/Chapter6/53G-6-S402.html) and many choose Emerson for its commitment to excellence.
 
