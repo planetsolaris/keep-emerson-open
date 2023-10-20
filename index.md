@@ -36,7 +36,7 @@ This site aims to provide insights into [each of these factors](https://www.slcs
 - Emerson is the only school in the district with aftercare programs within .5 miles of walking distance from the school (like [Arte Primero Studios and St. John's CCDC Sugarhouse](https://resources.finalsite.net/images/v1621450917/slcschoolsorg/xyae2owyn1qmay2mws0s/Emersondaycares2021.pdf)).
 - Classes are able to have safe walking field trips around the community (to [Little Free Libraries](https://littlefreelibrary.org), parks, post office, etc.).
 - The city is [improving 1100 East](https://www.slc.gov/mystreet/2022/12/12/1100east/) near Emerson to “provide safety improvements, traffic calming features, and bicycle lanes along the corridor.”
-- The city also has other projects near Emerson that will further help with students' safety and accessibility to and from school: [800 East Neighborhood Byway](https://www.slc.gov/transportation/neighborhood-byways/800east/), [900 South Reconstruction](https://www.slc.gov/mystreet/2023/02/16/900-south-900-east-to-900-west/), [McClelland Trail Improvements](https://www.slc.gov/transportation/mcclelland-nsli/), and [Kensington Ave. Neighborhood Byway](https://www.slc.gov/transportation/neighborhood-byways/kensington/). These walking and biking improvements improve the neighborhood for families and the community.
+- The city also has other projects near Emerson that will further help with students' access and safety to and from school: [800 East Neighborhood Byway](https://www.slc.gov/transportation/neighborhood-byways/800east/), [900 South Reconstruction](https://www.slc.gov/mystreet/2023/02/16/900-south-900-east-to-900-west/), [McClelland Trail Improvements](https://www.slc.gov/transportation/mcclelland-nsli/), and [Kensington Ave. Neighborhood Byway](https://www.slc.gov/transportation/neighborhood-byways/kensington/). These walking and biking improvements improve the neighborhood for families and the community.
 - Emerson is accessible via [UTA](https://www.rideuta.com/Fares-And-Passes/Pass-Programs/UTA-School-Pass-Programs/Salt-Lake-City-School-District) bus routes 209 and 220.
 
 ## Cost to Operate (building, utilities, etc.)
@@ -53,9 +53,11 @@ Emerson parents volunteer at the school every day. Their active involvement not 
 
 [**2023-2024 Enrollment Report**](https://app.powerbi.com/view?r=eyJrIjoiOGY4ODM0NzgtMWM5Yy00ZGEyLTlmMzUtMWUwNmM4YzBjNmVlIiwidCI6IjViNzg1OTg4LWQxNTktNDI1Ni05OWM2LTY0NzRhMDY5NmYxMyIsImMiOjZ9&pageName=ReportSection19df96761d8ed5812151)
 
-Emerson continues to serve a [significant number of students from its local neighborhood](https://resources.finalsite.net/images/v1674672795/slcschoolsorg/sggt8uoni0hckkbdgvte/FallEnrollment2022.pdf). As per the [district's definition](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study#fs-panel-80603) of “right-sized elementary school,” Emerson maintains a ratio of about three teachers per grade and offers full-day kindergarten classes. In Utah, parents have the choice of [open enrollment](https://le.utah.gov/xcode/Title53G/Chapter6/53G-6-S402.html) and many choose Emerson for its commitment to excellence.
+Emerson continues to serve a [significant number of students from its local neighborhood](https://resources.finalsite.net/images/v1674672795/slcschoolsorg/sggt8uoni0hckkbdgvte/FallEnrollment2022.pdf). Despite declining district-wide enrollment rates cited as a reason for potential closures, Emerson operates at 84% student capacity, marking the third-highest enrollment rate within the Salt Lake City School District.
 
-Despite declining district-wide enrollment rates cited as a reason for potential closures, Emerson operates at 84% student capacity, marking the third-highest enrollment rate within the Salt Lake City School District. 
+In Utah, parents have the choice of [open enrollment](https://le.utah.gov/xcode/Title53G/Chapter6/53G-6-S402.html) and many choose Emerson for its commitment to excellence.
+
+As per the [district's definition](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study#fs-panel-80603) of “right-sized elementary school,” Emerson maintains a ratio of about three teachers per grade and offers full-day kindergarten classes.
 
 ## Proximity to Other Schools
 
@@ -63,7 +65,7 @@ In [Central City](https://g.co/kgs/txQADM)/[East Central](https://g.co/kgs/xUXFJ
 
 The loss of these four schools would significantly impact the fabric of this area, which can also be challenging to fill in the future. Emerson is a vital cornerstone of our community: it is a phenomenal public elementary school in the district that just works. The school ground also becomes a community gathering point/green space in the evenings when dog owners bring their dogs to the field, parents with babies and toddlers play in the playground, and students with their caregivers also stop by.
 
-Emerson is in the center of University of Utah, Westminster, and SLCC. To promote lifelong learning in SLCSD, Emerson should be kept open and more collaboration with the nearby universities should be promoted.
+Emerson is in the center of SLCC, University of Utah, Westminster. To promote lifelong learning in the district and the state, Emerson should be kept open and more collaboration with the nearby college/universities should be promoted in elementary schools.
 
 ## Summary of Concerns
 
