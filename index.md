@@ -8,7 +8,7 @@ Hello, we are members of the Emerson Elementary community.
 
 Our mission is to create a hub for gathering and sharing information about Emerson with a passionate determination to ensure its continued operation.
 
-## Per the [school district's policy](https://resources.finalsite.net/images/v1644869018/slcschoolsorg/da6w2cajvlh3tpfsacb0/g-5-policy-english.pdf), "all applicable factors will be considered" regarding school closures, including but [not limited to the following](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study#fs-panel-81390):
+## Per the [school district's policy](https://resources.finalsite.net/images/v1644869018/slcschoolsorg/da6w2cajvlh3tpfsacb0/g-5-policy-english.pdf), "all applicable factors will be considered" regarding school closures, including but not limited to the following:
 
 - Enrollment data
 - Facility capacity and design
@@ -26,7 +26,7 @@ Our mission is to create a hub for gathering and sharing information about Emers
 - Financial implications
 - Educational programs
 
-This site aims to provide insights into each of these factors, underscoring their significance in the preservation of Emerson Elementary. This site also highlights our human connection to the school with some demographics and school performance information along with our community input and feedback. **<u>Emerson is more than just a building, it is our students, teachers, admins/staff, and community.</u>**
+This site aims to provide insights into [each of these factors](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study#fs-panel-81390), underscoring their significance in the preservation of Emerson Elementary. This site also highlights our human connection to the school with some demographics and school performance information along with our community input and feedback. **<u>Emerson is more than just a building, it is our students, teachers, admins/staff, and community.</u>**
 
 ## Accessibility and Safety
 
