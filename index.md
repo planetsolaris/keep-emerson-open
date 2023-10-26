@@ -90,16 +90,14 @@ Emerson is in the center of SLCC, University of Utah, and Westminster University
 - [Emerson Community Email Updates Request](https://docs.google.com/forms/d/e/1FAIpQLScDFigP-wvRopUnGTgdQKxXOuStwSb5yO22j8BgRqwgVuvrlg/viewform)
 - [Emerson Yard Signs Request](https://docs.google.com/forms/d/e/1FAIpQLScJL91a5q3W95lRggH-4-qZZQ3s_D0HY4XDrXgTYN07SKptqA/viewform)
 - **Important Dates:**\
-    **Emerson Community Meeting w/ SLCSD:** October 24, 5:30 p.m. at Emerson (Tailgate at McClelland Circle, 4:30-5:30 p.m.)
-
-    **Population and Boundary Study Information Meetings:** [October 25, 7-9 p.m. at Hillside Middle School](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study#fs-panel-81387)
-
-    **School Board Meetings:** [November 7 and 20, December 5 **(PUBLIC HEARING)**, 5:30 p.m.](https://www.slcschools.org/board-of-education/board-meetings/2023-24-board-meetings)
+    **School Board Meetings:** [November 7 and 20](https://www.slcschools.org/board-of-education/board-meetings/2023-24-board-meetings), December 5 [**(PUBLIC HEARING)**](https://www.utah.gov/pmn/files/1038353.pdf), 5:30 p.m.
 
 - [Board Meetings Request to Speak/Written Public Comments Info.](https://www.slcschools.org/board-of-education/board-meetings/request-to-speak)
 - Email [the Board](https://www.slcschools.org/board-of-education), [Superintendent’s Office](https://www.slcschools.org/departments/superintendents-office), or leave them [feedback](https://saltlakedistrict.sjc1.qualtrics.com/jfe/form/SV_7QltKWhIzdMCapM) online.
 - [**SLCSD Community Feedback**](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study/community-feedback)
+- [SLTrib: School Closure Process is Deeply Flawes and Needs to Slow Down](https://www.sltrib.com/opinion/commentary/2023/10/25/nick-schou-jack-davis-salt-lake/)
 - [October 18, 2023 Boundaries & Planning Information Meeting (Comments and Questions start at 35:35)](https://www.youtube.com/live/1Ch0fDil1Pc?si=-RDDhIITrNljMw0H&t=2135)
+- [SLTrib: School Closures feels Reminiscent of ‘The Hunger Games’](https://www.sltrib.com/opinion/commentary/2023/10/18/katie-wagner-salt-lake-school/)
 - [October 7, 2023 Boundaries & Planning Information Meeting (Comments and Questions start at 30:49)](https://www.youtube.com/live/1HFQruhKNkY?feature=share&t=1849)
 - [October 3, 2023 Board Meeting Comments (starts at 16:47) and Study Update (starts at 37:00)](https://www.youtube.com/live/eDLAwsjlRIc?si=4_Bqt7zbMHmeok25&t=1007)
 - [October 3, 2023 Written Public Comments](https://resources.finalsite.net/images/v1697064759/slcschoolsorg/da1sz6n7ama61fzcmzfq/WrittenPublicComment.pdf)
