@@ -95,6 +95,8 @@ Emerson is in the center of SLCC, University of Utah, and Westminster University
 - [Board Meetings Request to Speak/Written Public Comments Info.](https://www.slcschools.org/board-of-education/board-meetings/request-to-speak)
 - Email [the Board](https://www.slcschools.org/board-of-education), [Superintendent’s Office](https://www.slcschools.org/departments/superintendents-office), or leave them [feedback](https://saltlakedistrict.sjc1.qualtrics.com/jfe/form/SV_7QltKWhIzdMCapM) online.
 - [**SLCSD Community Feedback**](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study/community-feedback)
+- [**ELPCO GRAMA Request SLCSD Data**](https://drive.google.com/drive/mobile/folders/1aiq1rQuJFyIHGcZMmQzV4gMtjl7LLBZQ)
+- [October 26, 2023 ELPCO Meeting: SLCSD School Closure Discussion starts at 1:33:33](https://www.facebook.com/ELPCO/videos/868363611484802/&t=5613)
 - [October 25, 2023 Boundaries & Planning Information Meeting (Comments and Questions start at 24:12)](https://www.youtube.com/live/D6G18gDJwjU?si=Zv3xpNqL8tTNmpaO&t=1452)
 - [SLTrib: School Closure Process is Deeply Flawed and Needs to Slow Down](https://www.sltrib.com/opinion/commentary/2023/10/25/nick-schou-jack-davis-salt-lake/)
 - [October 21, 2023 Boundaries & Planning Information Meeting en español](https://www.youtube.com/watch?v=R6d_JCgLda4)
