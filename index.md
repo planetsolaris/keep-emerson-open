@@ -79,7 +79,7 @@ Emerson is in the center of SLCC, University of Utah, and Westminster University
 
 5. **Human Impact**: [The district decided which schools they will study for possible closure based on building age without considering factors like school performance, student achievement, equity, and community impact.](https://resources.finalsite.net/images/v1689889156/slcschoolsorg/msnrax3oquvts0jx4b0i/Ranking.pdf) Before closing any schools, the district should evaluate and report on how closures will affect students, families, teachers, and communities.
 
-6. **Community**: The district's current recommendations will hollow out the heart of the city which will affect who moves into our Central City neighborhoods for generations. The district should keep Emerson and another East Central school open so that families will continue to live in the area and to attract new families to the area.
+6. **Community**: The district's current recommendations will hollow out the heart of the city which will affect who moves into our Central City neighborhoods for generations.
 
 7. **Scope of Change**: Too many schools, too quickly. Closing 7 schools or 25% of the district's elementary schools is too much change at once. The district cannot ensure a safe and smooth transition for that many kids, especially our most vulnerable students. The district should close fewer schools now and develop a long-term plan for future closures. 
 
