@@ -96,6 +96,7 @@ Emerson is in the center of SLCC, University of Utah, and Westminster University
 - Email [the Board](https://www.slcschools.org/board-of-education), [Superintendent’s Office](https://www.slcschools.org/departments/superintendents-office), or leave them [feedback](https://saltlakedistrict.sjc1.qualtrics.com/jfe/form/SV_7QltKWhIzdMCapM) online.
 - [**SLCSD Community Feedback**](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study/community-feedback)
 - [**ELPCO GRAMA Request SLCSD Data**](https://drive.google.com/drive/mobile/folders/1aiq1rQuJFyIHGcZMmQzV4gMtjl7LLBZQ)
+- [Fox13: Communities Concerned with Study on SLC Schools for Closure](https://www.fox13now.com/news/local-news/communities-concerned-with-study-on-salt-lake-city-schools-for-closure)
 - [October 26, 2023 ELPCO Meeting: SLCSD School Closure Discussion starts at 1:33:33](https://m.facebook.com/plugins/video.php?height=314&href=https%3A%2F%2Fwww.facebook.com%2FELPCO%2Fvideos%2F868363611484802%2F&show_text=false&width=560&t=5613)
 - [October 25, 2023 Boundaries & Planning Information Meeting (Comments and Questions start at 24:12)](https://www.youtube.com/live/D6G18gDJwjU?si=Zv3xpNqL8tTNmpaO&t=1452)
 - [SLTrib: School Closure Process is Deeply Flawed and Needs to Slow Down](https://www.sltrib.com/opinion/commentary/2023/10/25/nick-schou-jack-davis-salt-lake/)
