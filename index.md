@@ -100,7 +100,7 @@ Emerson is in the center of SLCC, University of Utah, and Westminster University
 - [October 26, 2023 ELPCO Meeting: SLCSD School Closure Discussion starts at 1:33:33](https://m.facebook.com/plugins/video.php?height=314&href=https%3A%2F%2Fwww.facebook.com%2FELPCO%2Fvideos%2F868363611484802%2F&show_text=false&width=560&t=5613)
 - [October 25, 2023 Boundaries & Planning Information Meeting (Comments and Questions start at 24:12)](https://www.youtube.com/live/D6G18gDJwjU?si=Zv3xpNqL8tTNmpaO&t=1452)
 - [SLTrib: School Closure Process is Deeply Flawed and Needs to Slow Down](https://www.sltrib.com/opinion/commentary/2023/10/25/nick-schou-jack-davis-salt-lake/)
-- [SLCSD Q&A at Emerson](https://emerson.slcschools.org/news/news-details/~board/emerson-news/post/population-and-boundary-study-qa-meeting-at-emerson)
+- [**SLCSD Q&A at Emerson**](https://emerson.slcschools.org/news/news-details/~board/emerson-news/post/population-and-boundary-study-qa-meeting-at-emerson)
 - [October 21, 2023 Boundaries & Planning Information Meeting en español](https://www.youtube.com/watch?v=R6d_JCgLda4)
 - [October 18, 2023 Boundaries & Planning Information Meeting (Comments and Questions start at 35:35)](https://www.youtube.com/live/1Ch0fDil1Pc?si=-RDDhIITrNljMw0H&t=2135)
 - [SLTrib: School Closures feels Reminiscent of ‘The Hunger Games’](https://www.sltrib.com/opinion/commentary/2023/10/18/katie-wagner-salt-lake-school/)
