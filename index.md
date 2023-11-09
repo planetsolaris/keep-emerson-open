@@ -90,12 +90,13 @@ Emerson is in the center of SLCC, University of Utah, and Westminster University
 - [Emerson Community Email Updates Request](https://docs.google.com/forms/d/e/1FAIpQLScDFigP-wvRopUnGTgdQKxXOuStwSb5yO22j8BgRqwgVuvrlg/viewform)
 - [Emerson Yard Signs Request](https://docs.google.com/forms/d/e/1FAIpQLScJL91a5q3W95lRggH-4-qZZQ3s_D0HY4XDrXgTYN07SKptqA/viewform)
 - **Important Dates:**\
-    **School Board Meetings:** [November 7 and 20](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study#fs-panel-81379), December 5 [**(PUBLIC HEARING)**](https://www.utah.gov/pmn/files/1038353.pdf)
+    **School Board Meetings:** [November 20](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study#fs-panel-81381), December 5 [**(PUBLIC HEARING)**](https://www.utah.gov/pmn/files/1038353.pdf)
 
 - [Board Meetings Request to Speak/Written Public Comments Info.](https://www.slcschools.org/board-of-education/board-meetings/request-to-speak)
-- Email [the Board](https://www.slcschools.org/board-of-education), [Superintendent’s Office](https://www.slcschools.org/departments/superintendents-office), or leave them [feedback](https://saltlakedistrict.sjc1.qualtrics.com/jfe/form/SV_7QltKWhIzdMCapM) online.
+- **Email [the Board](https://www.slcschools.org/board-of-education), [Superintendent’s Office](https://www.slcschools.org/departments/superintendents-office), or leave them [feedback](https://saltlakedistrict.sjc1.qualtrics.com/jfe/form/SV_7QltKWhIzdMCapM) online.**
 - [**SLCSD Community Feedback**](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study/community-feedback)
 - [**ELPCO GRAMA Request SLCSD Data**](https://drive.google.com/drive/mobile/folders/1aiq1rQuJFyIHGcZMmQzV4gMtjl7LLBZQ)
+- [November 7, 2023 Board Meeting](https://m.youtube.com/watch?v=5jDCVYKmAdE)
 - [Deseret: Emerson Crossing Guard Arlee's Story](https://www.deseret.com/utah/2023/11/5/23927309/how-arlees-crossing-guard-job-became-her-sanctuary#:~:text=After%20her%20husband%20died%20unexpectedly,helping%20children%20cross%20the%20street)
 - [Fox13: Communities Concerned with Study on SLC Schools for Closure](https://www.fox13now.com/news/local-news/communities-concerned-with-study-on-salt-lake-city-schools-for-closure)
 - [October 26, 2023 ELPCO Meeting: SLCSD School Closure Discussion starts at 1:33:33](https://m.facebook.com/plugins/video.php?height=314&href=https%3A%2F%2Fwww.facebook.com%2FELPCO%2Fvideos%2F868363611484802%2F&show_text=false&width=560&t=5613)
