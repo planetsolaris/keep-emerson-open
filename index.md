@@ -137,7 +137,7 @@ Emerson is in the center of SLCC, University of Utah, and Westminster University
 - [KSLTV: SLCSD to Release List of Schools Facing Closure](https://ksltv.com/566611/salt-lake-school-district-to-release-list-of-schools-facing-closure/)
 - [April 2023 Emerson SCC Meeting Notes](https://resources.finalsite.net/images/v1683554636/slcschoolsorg/t4ivga7dhu4iw5ht0gkv/EmersonSCCMinutes41223.pdf)
 
-2021-2022 [School State Profile](https://utahschoolgrades.schools.utah.gov/School/Profile/?SchoolID=1116&DistrictID=1107&SchoolNbr=136&SchoolLevel=K8&IsSplitSchool=0&schoolyearendyear=2022) | [Grade](https://utahschoolgrades.schools.utah.gov/School/OverAllPerformance?SchoolID=1116&DistrictID=1107&SchoolNbr=136&SchoolLevel=K8&IsSplitSchool=0&schoolyearendyear=2022) | [District State Profile](https://utahschoolgrades.schools.utah.gov/District/Profile?DistrictID=1107&schoolyearendyear=2022)
+2022-2023 [School State Profile](https://reportcard.schools.utah.gov/School/OverAllPerformance?SchoolID=1116&DistrictID=1107&SchoolNbr=136&SchoolLevel=K8&IsSplitSchool=0&schoolyearendyear=2023) | [District State Profile](https://reportcard.schools.utah.gov/District/Profile?DistrictID=1107&schoolyearendyear=2023)
 
 ## Emerson Elementary History
 
