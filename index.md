@@ -100,6 +100,7 @@ Emerson is in the center of SLCC, University of Utah, and Westminster University
 - [**ELPCO GRAMA Request SLCSD Data**](https://drive.google.com/drive/mobile/folders/1aiq1rQuJFyIHGcZMmQzV4gMtjl7LLBZQ)
 - [KUTV: SLCSD Recommends Closing 4 Elementary Schools](https://kutv.com/news/crisis-in-the-classroom/salt-lake-city-school-district-recommends-closing-four-schools-mary-w-jackson-m-lynn-bennion-hawthorne-and-riley-elementary-spokeswoman-yndary-chatwin-enrollment-numbers)
 - [Fox13: SLCSD Recommends Closing 4 Elementary Schools](https://www.fox13now.com/salt-lake-city-school-district-recommends-4-elementary-schools-for-closure)
+- [November 20, 2023 Board Meeting](https://m.youtube.com/watch?v=28UUUe_uDHQ)
 - [KUTV: SLC School Board Considers Closing 7 Elementary Schools Due to Declining Enrollment](https://kutv.com/news/crisis-in-the-classroom/salt-lake-city-school-board-considers-closing-seven-elementary-schools-due-to-declining-enrollment-hawthorne-emerson-bennion-mary-w-jackson-newman-riley-wasatch-elementary#)
 - [November 7, 2023 Board Meeting](https://m.youtube.com/watch?v=5jDCVYKmAdE)
 - [Deseret: Emerson Crossing Guard Arlee's Story](https://www.deseret.com/utah/2023/11/5/23927309/how-arlees-crossing-guard-job-became-her-sanctuary#:~:text=After%20her%20husband%20died%20unexpectedly,helping%20children%20cross%20the%20street) [[KSL]](https://www.ksl.com/article/50777270/how-arlees-crossing-guard-job-became-her-sanctuary)
