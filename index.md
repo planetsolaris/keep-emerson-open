@@ -2,7 +2,7 @@
 
 [**Este es el link al Google Translate de español.**](https://keepemersonopen-info.translate.goog/?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en&_x_tr_pto=wapp)
 
-## **Emerson** [recommended](https://resources.finalsite.net/images/v1700523731/slcschoolsorg/h6gkywtiuvscmowlhtc0/SLCSDFURTHERSTUDYRECOMMENDATIONS.pdf) to stay open, but ELP/DLI will go to Nibley Park School.
+## Emerson [**recommended**](https://resources.finalsite.net/images/v1700523731/slcschoolsorg/h6gkywtiuvscmowlhtc0/SLCSDFURTHERSTUDYRECOMMENDATIONS.pdf) to stay open, but ELP/DLI will go to Nibley Park School.
 
 Hello, we are members of the Emerson Elementary community.
 
