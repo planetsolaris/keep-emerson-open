@@ -28,7 +28,7 @@ Our mission is to create a hub for gathering and sharing information about Emers
 - Financial implications
 - Educational programs
 
-This site aims to provide insights into [each of these factors](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study#fs-panel-81390), underscoring their significance in the preservation of Emerson Elementary. This site also highlights our human connection to the school with some demographics and school performance information along with our community input and feedback. **<u>Emerson is more than just a building, it is our students, teachers, admins/staff, and community.</u>**
+This site aims to provide insights into [each of these factors](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study/population-and-boundary-study-faq#fs-panel-81567), underscoring their significance in the preservation of Emerson Elementary. This site also highlights our human connection to the school with some demographics and school performance information along with our community input and feedback. **<u>Emerson is more than just a building, it is our students, teachers, admins/staff, and community.</u>**
 
 ## Accessibility and Safety
 
