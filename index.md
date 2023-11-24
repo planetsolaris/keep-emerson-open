@@ -2,6 +2,8 @@
 
 [**Este es el link al Google Translate de español.**](https://keepemersonopen-info.translate.goog/?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en&_x_tr_pto=wapp)
 
+## **Emerson** [recommended](https://resources.finalsite.net/images/v1700523731/slcschoolsorg/h6gkywtiuvscmowlhtc0/SLCSDFURTHERSTUDYRECOMMENDATIONS.pdf) to stay open, but ELP/DLI will go to Nibley Park School.
+
 Hello, we are members of the Emerson Elementary community.
 
 [Emerson](https://emerson.slcschools.org) is a public elementary school in Salt Lake City, Utah that is currently on a list for [potential closure](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study) despite the fact that it is a [nationally recognized school](https://nationalblueribbonschools.ed.gov/awardwinners/winning/21ut102pu_emerson_elementary_school.html).
@@ -90,12 +92,14 @@ Emerson is in the center of SLCC, University of Utah, and Westminster University
 - [Emerson Community Email Updates Request](https://docs.google.com/forms/d/e/1FAIpQLScDFigP-wvRopUnGTgdQKxXOuStwSb5yO22j8BgRqwgVuvrlg/viewform)
 - [Emerson Yard Signs Request](https://docs.google.com/forms/d/e/1FAIpQLScJL91a5q3W95lRggH-4-qZZQ3s_D0HY4XDrXgTYN07SKptqA/viewform)
 - **Important Dates:**\
-    [**November 20 School Board Meeting (at Glendale Middle School)**](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study#fs-panel-81381), [**December 5 PUBLIC HEARING**](https://www.utah.gov/pmn/files/1038353.pdf)
+    Board Meetings: [**December 5, 2023 (PUBLIC HEARING)**](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study#fs-panel-82607), [**January 9, 2024**](https://www.slcschools.org/board-of-education/board-meetings/2023-24-board-meetings#)
 
 - [Board Meetings Request to Speak/Written Public Comments Info.](https://www.slcschools.org/board-of-education/board-meetings/request-to-speak)
 - **Email [the Board](https://www.slcschools.org/board-of-education), [Superintendent’s Office](https://www.slcschools.org/departments/superintendents-office), or leave them [feedback](https://saltlakedistrict.sjc1.qualtrics.com/jfe/form/SV_7QltKWhIzdMCapM) online.**
 - [**SLCSD Community Feedback**](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study/community-feedback)
 - [**ELPCO GRAMA Request SLCSD Data**](https://drive.google.com/drive/mobile/folders/1aiq1rQuJFyIHGcZMmQzV4gMtjl7LLBZQ)
+- [KUTV: SLCSD Recommends Closing 4 Elementary Schools](https://kutv.com/news/crisis-in-the-classroom/salt-lake-city-school-district-recommends-closing-four-schools-mary-w-jackson-m-lynn-bennion-hawthorne-and-riley-elementary-spokeswoman-yndary-chatwin-enrollment-numbers)
+- [Fox13: SLCSD Recommends Closing 4 Elementary Schools](https://www.fox13now.com/salt-lake-city-school-district-recommends-4-elementary-schools-for-closure)
 - [KUTV: SLC School Board Considers Closing 7 Elementary Schools Due to Declining Enrollment](https://kutv.com/news/crisis-in-the-classroom/salt-lake-city-school-board-considers-closing-seven-elementary-schools-due-to-declining-enrollment-hawthorne-emerson-bennion-mary-w-jackson-newman-riley-wasatch-elementary#)
 - [November 7, 2023 Board Meeting](https://m.youtube.com/watch?v=5jDCVYKmAdE)
 - [Deseret: Emerson Crossing Guard Arlee's Story](https://www.deseret.com/utah/2023/11/5/23927309/how-arlees-crossing-guard-job-became-her-sanctuary#:~:text=After%20her%20husband%20died%20unexpectedly,helping%20children%20cross%20the%20street) [[KSL]](https://www.ksl.com/article/50777270/how-arlees-crossing-guard-job-became-her-sanctuary)
