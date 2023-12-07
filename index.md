@@ -92,7 +92,7 @@ Emerson is in the center of SLCC, University of Utah, and Westminster University
 - [Emerson Community Email Updates Request](https://docs.google.com/forms/d/e/1FAIpQLScDFigP-wvRopUnGTgdQKxXOuStwSb5yO22j8BgRqwgVuvrlg/viewform)
 - [Emerson Yard Signs Request](https://docs.google.com/forms/d/e/1FAIpQLScJL91a5q3W95lRggH-4-qZZQ3s_D0HY4XDrXgTYN07SKptqA/viewform)
 - **Important Dates:**\
-    Board Meetings: [**December 5, 2023 (PUBLIC HEARING)**](https://www.slcschools.org/departments/information-technology/boundaries-and-planning/population-and-boundary-study#fs-panel-82607), [**January 9, 2024**](https://www.slcschools.org/board-of-education/board-meetings/2023-24-board-meetings#)
+    Board Meetings: [**January 9, 2024**](https://www.slcschools.org/board-of-education/board-meetings/2023-24-board-meetings#)
 
 - [Board Meetings Request to Speak/Written Public Comments Info.](https://www.slcschools.org/board-of-education/board-meetings/request-to-speak)
 - **Email [the Board](https://www.slcschools.org/board-of-education), [Superintendent’s Office](https://www.slcschools.org/departments/superintendents-office), or leave them [feedback](https://saltlakedistrict.sjc1.qualtrics.com/jfe/form/SV_7QltKWhIzdMCapM) online.**
